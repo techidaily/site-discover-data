@@ -1,7 +1,7 @@
 ---
 title: "Engage with Action: Utilizing HUD Features in Active Desktop Interface"
-date: 2024-09-18 23:18:31
-updated: 2024-09-20 10:11:35
+date: 2024-09-18T19:55:24.039Z
+updated: 2024-09-20T05:19:09.338Z
 tags:
   - product
 categories:
@@ -73,6 +73,13 @@ Action Tutorials
   
 ![](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_description.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Hotkeys
 
 To control Action! HUD you can use the following hotkeys:
@@ -89,6 +96,13 @@ To change HUD startup position, please open Action! Settings, go to HUD tab and 
 
 ![Mirillis Action! - exporting video recordings to YouTube - start export](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_video_recording_status.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  When desktop recording is in progress press **SHIFT+F9** hotkey to pause recording, please note that HUD status changes showing PAUSE icon. Press "SHIFT+F9" hotkey again to resume desktop recording.
 
 ![Mirillis Action! - HUD showing desktop recording in progress](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_video_recording_paused.jpg) 
@@ -101,6 +115,13 @@ To change HUD startup position, please open Action! Settings, go to HUD tab and 
 
 ![Mirillis Action! - HUD showing desktop recording with progress bar](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_video_recording_status_with_progress.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  HUD on video recordings
 
  Please note that with default settings Action! HUD will be not included with all Windows desktop or game recordings. To include HUD in video recording please see Action! HUD Settings.
@@ -110,8 +131,6 @@ To change HUD startup position, please open Action! Settings, go to HUD tab and 
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
