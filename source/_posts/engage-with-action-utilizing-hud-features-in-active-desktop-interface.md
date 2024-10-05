@@ -1,7 +1,7 @@
 ---
 title: "Engage with Action: Utilizing HUD Features in Active Desktop Interface"
-date: 2024-09-24T18:25:46.975Z
-updated: 2024-09-30T02:18:15.537Z
+date: 2024-10-03T20:58:23.522Z
+updated: 2024-10-05T19:38:09.980Z
 tags:
   - product
 categories:
@@ -46,6 +46,13 @@ Action Tutorials
   
  Share this tutorial:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Introduction 
 
  The Action! user interface consists of 2 parts: Action! application window and HUD. HUD is displayed when Action! is connected to your Windows desktop or game and displays important information. Follow this tutorial and explore basic information about Action! HUD in Active desktop recording mode.
@@ -55,6 +62,17 @@ Action Tutorials
  This tutorial provides information about HUD in Active screen recording mode. Switch Action! recording mode to **"Active screen"**.
 
 ![Mirillis Action! - Active desktop recording mode](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_active_desktop_recording_mode.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ Please note that Action! HUD appears in top right (default position) corner of your screen. This means that Action! is now connected to your Windows desktop and is ready to start desktop recording. 
+
+![Mirillis Action! - HUD in active desktop mode](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_normal_status.jpg) 
 
 <!-- affiliate ads begin -->
 <span id="1936838">
@@ -69,9 +87,12 @@ Action Tutorials
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
- Please note that Action! HUD appears in top right (default position) corner of your screen. This means that Action! is now connected to your Windows desktop and is ready to start desktop recording. 
-
-![Mirillis Action! - HUD in active desktop mode](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_normal_status.jpg) 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  Information displayed on Action! HUD
 
@@ -85,13 +106,6 @@ Action Tutorials
 * Microphone volume bar
   
 ![](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_description.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  Hotkeys
 
@@ -114,33 +128,19 @@ To change HUD startup position, please open Action! Settings, go to HUD tab and 
 ![Mirillis Action! - HUD showing desktop recording in progress](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_video_recording_paused.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  For time limited desktop recordings HUD displays a progress bar. Enable **"Duration"** in Video capture tab settings to limit desktop recording to specific duration. 
 
 ![Mirillis Action! - desktop recording duration settings](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_video_recording_duration.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  When desktop recording duration is enabled HUD displays a progress bar showing the progress of time limited desktop recording.
 
 ![Mirillis Action! - HUD showing desktop recording with progress bar](https://mirillis.com/res/old/gfx/tutorials/basics/mirillis_action_HUD_video_recording_status_with_progress.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  HUD on video recordings
 
@@ -161,21 +161,22 @@ To change HUD startup position, please open Action! Settings, go to HUD tab and 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-achieving-smooth-volume-decreases-using-lumafusion/"><u>[New] Achieving Smooth Volume Decreases Using Lumafusion</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-fishing-footage-frontier-top-action-cameras-for-the-sea/"><u>[New] Fishing Footage Frontier Top Action Cameras for the Sea</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-directly-posting-tiktok-videos-onto-your-facebook-timeline/"><u>[New] In 2024, Directly Posting TikTok Videos Onto Your Facebook Timeline</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-reel-your-browser-life-the-foremost-tools-for-high-quality-captures/"><u>[Updated] In 2024, Reel Your Browser Life The Foremost Tools for High-Quality Captures</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-exploring-the-future-of-interactive-headsets/"><u>2024 Approved Exploring the Future of Interactive Headsets</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-quicksnap-pro-studio-tools/"><u>2024 Approved QuickSnap Pro Studio Tools</u></a></li>
-<li><a href="https://discover-data.techidaily.com/extracting-flipbook-statistics-with-google-analytics-a-step-by-step-guide/"><u>Extracting Flipbook Statistics with Google Analytics: A Step-by-Step Guide</u></a></li>
-<li><a href="https://discover-data.techidaily.com/from-technical-manuals-to-captivating-ereaders-turning-chm-pages-into-compelling-ebooks-using-flipbuildercom/"><u>From Technical Manuals to Captivating eReaders: Turning CHM Pages Into Compelling eBooks Using FlipBuilder.com</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-can-i-access-the-flip-programs-user-guide-for-effective-management-with-flipoffice-pro/"><u>How Can I Access the Flip Program's User Guide for Effective Management with FlipOffice Pro?</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-access-flipbuilders-image-cropping-feature/"><u>How to Access FlipBuilder's Image Cropping Feature</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-add-your-business-emblem-as-a-watermark-on-flipbook-pages-using-flipbuilder/"><u>How To Add Your Business Emblem As A Watermark On FlipBook Pages Using FlipBuilder</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-publish-a-fully-functional-ebook-in-apples-ibooks-author-format-with-flipstudio-pro/"><u>How to Publish a Fully Functional eBook in Apple's iBooks Author Format with FlipStudio Pro</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-set-up-a-secure-and-user-friendly-pdf-downloading-feature-on-your-site-using-flipbuilder/"><u>How to Set Up a Secure and User-Friendly PDF Downloading Feature on Your Site Using FlipBuilder</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-tecno-pova-5-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Tecno Pova 5</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/sj4000-stylish-essentials-a-comprehensive-list/"><u>SJ4000 Stylish Essentials A Comprehensive List</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unveiling-how-luts-transform-visual-elements-in-photos-for-2024/"><u>Unveiling How LUTs Transform Visual Elements in Photos for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-blueprint-for-effective-virtual-engagement-with-zoom/"><u>[Updated] 2024 Approved Blueprint for Effective Virtual Engagement with Zoom</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-free-image-to-pdf-transformer-effortlessly-change-pictures-into-printable-documents/"><u>1. Free Image-to-PDF Transformer - Effortlessly Change Pictures Into Printable Documents</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-maximize-video-clarity-with-obs-tweaks/"><u>2024 Approved Maximize Video Clarity with OBS Tweaks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-retrieving-your-liked-videos-from-facebook/"><u>2024 Approved Retrieving Your Liked Videos From Facebook</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-zoomelitevue-7-enhance-and-resize-like-a-pro/"><u>2024 Approved ZoomEliteVue 7 Enhance & Resize Like a Pro</u></a></li>
+<li><a href="https://discover-data.techidaily.com/best-high-definition-video-capture-apps-top-5-picks-for-crystal-clear-screenshots/"><u>Best High-Definition Video Capture Apps: Top 5 Picks for Crystal Clear Screenshots</u></a></li>
+<li><a href="https://discover-data.techidaily.com/capturing-voice-over-ip-conversations-from-apples-imessage-and-facetime/"><u>Capturing Voice Over IP Conversations From Apple's iMessage and Facetime</u></a></li>
+<li><a href="https://discover-data.techidaily.com/evaluating-the-safety-of-windows-10-insights-from-malwarefox/"><u>Evaluating the Safety of Windows 10: Insights From MalwareFox</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-does-localized-ai-process-information-exploring-on-device-cognition/"><u>How Does Localized AI Process Information? Exploring On-Device Cognition</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-capturing-virtual-reality-iphone-edition/"><u>In 2024, Capturing Virtual Reality IPhone Edition</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-game-glitches-the-ultimate-guide-to-overcoming-apex-legends-error-23/"><u>Solving Game Glitches: The Ultimate Guide to Overcoming Apex Legends Error 23</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-tutorial-for-instant-captioning-on-reels-videos-2021-edition/"><u>Step-by-Step Tutorial for Instant Captioning on Reels Videos - 2021 Edition</u></a></li>
+<li><a href="https://windows11.techidaily.com/tailoring-the-start-page-for-task-manager-windows-11/"><u>Tailoring the Start Page for Task Manager (Windows 11)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/through-the-fins-pro-techniques-for-taking-superior-gopro-videos-underwater-for-2024/"><u>Through the Fins Pro Techniques for Taking Superior GoPro Videos Underwater for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/top-3-strategies-for-securely-inserting-passwords-into-your-pdf-documents/"><u>Top 3 Strategies for Securely Inserting Passwords Into Your PDF Documents</u></a></li>
+<li><a href="https://discover-data.techidaily.com/top-methods-for-streaming-pubg-mobile-onto-your-television-ultimate-guide/"><u>Top Methods for Streaming PUBG Mobile Onto Your Television: Ultimate Guide</u></a></li>
+<li><a href="https://discover-data.techidaily.com/top-techniques-for-capturing-high-quality-gaming-footage-on-your-mac/"><u>Top Techniques for Capturing High-Quality Gaming Footage on Your Mac</u></a></li>
 </ul></div>
 
