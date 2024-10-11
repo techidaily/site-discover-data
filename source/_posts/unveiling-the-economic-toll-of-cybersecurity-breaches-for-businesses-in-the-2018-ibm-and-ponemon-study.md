@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Economic Toll of Cybersecurity Breaches for Businesses in the 2018 IBM and Ponemon Study
-date: 2024-10-01T22:36:09.920Z
-updated: 2024-10-05T22:41:15.850Z
+date: 2024-10-04T17:56:43.895Z
+updated: 2024-10-10T18:08:46.360Z
 tags:
   - product
   - antivirus
@@ -66,10 +66,10 @@ Based on analysis of 11 companies experiencing a mega breach over the past two y
 For mega breaches, the biggest expense category was costs associated with lost business, which was estimated at nearly $118 million for breaches of 50 million records – almost a third of the total cost of a breach this size. IBM analyzed the publicly reported costs of several high profile mega breaches, and found the reported numbers are often less than the average cost found in the study.4 This is likely due to publicly reported cost often being limited to direct costs, such as technology and services to recover from the breach, legal and regulatory fees, and reparations to customers.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Impacts the Average Cost of a Data Breach?
@@ -90,16 +90,10 @@ The amount of lost or stolen records also impacts the cost of a breach, costing 
 This year for the first time, the report examined the effect of security automation tools which use artificial intelligence, machine learning, analytics and orchestration to augment or replace human intervention in the identification and containment of a breach. The analysis found that organizations that had extensively deployed automated security technologies saved over $1.5 million on the total cost of a breach ($2.88 million, compared to $4.43 million for those who had not deployed security automation.)
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regional and Industry Differences
@@ -112,10 +106,10 @@ The study also compared the cost of data breaches in different industries and re
 [![cost of data breach by countries](https://www.malwarefox.com/wp-content/uploads/2019/04/cost-of-data-breach-regions.png)](https://www.malwarefox.com/wp-content/uploads/2019/04/cost-of-data-breach-regions.png)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
-  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 One major factor impacting the cost of a data breach in the U.S. was the reported cost of lost business, which was $4.2 million – more than the total average cost of a breach globally, and more than double the amount of “lost business costs” compared to any other region surveyed. One major factor impacting lost business costs is customer turnover in the aftermath of a breach; in fact a recent [IBM / Harris poll report](https://www.prnewswire.com/news-releases/new-survey-finds-deep-consumer-anxiety-over-data-privacy-and-security-300630067.html) found that  75 percent of consumers in the U.S. say that they will not do business with companies that they do not trust to protect their data .
@@ -132,10 +126,10 @@ One major factor impacting the cost of a data breach in the U.S. was the reporte
 Source: IBM
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Leave a Comment [Cancel reply](https://tools.techidaily.com/malwarefox/products/)
@@ -163,18 +157,22 @@ Save my name, email, and website in this browser for the next time I comment.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-big-sur-readiness-system-and-hardware-guide/"><u>[New] Big Sur Readiness System & Hardware Guide</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-taking-flight-in-depth-review-of-the-x4-fpv-quadcopter/"><u>[New] Taking Flight In-Depth Review of the X4 FPV Quadcopter</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-highlights-download-methods-and-creating-tips/"><u>[Updated] In 2024, Instagram Highlights Download Methods and Creating Tips</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1-free-image-to-pdf-transformer-effortlessly-change-pictures-into-printable-documents/"><u>1. Free Image-to-PDF Transformer - Effortlessly Change Pictures Into Printable Documents</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-the-comprehensive-guide-to-10-best-meme-patterns/"><u>2024 Approved The Comprehensive Guide to #10 Best Meme Patterns</u></a></li>
-<li><a href="https://win-answers.techidaily.com/beat-cod-black-ops-cold-war-glitch-overcome-error-80070057-with-these-steps/"><u>Beat Cod: Black Ops Cold War Glitch - Overcome Error 80070057 with These Steps</u></a></li>
-<li><a href="https://discover-data.techidaily.com/capturing-voice-over-ip-conversations-from-apples-imessage-and-facetime/"><u>Capturing Voice Over IP Conversations From Apple's iMessage and Facetime</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/empowering-conversations-mastering-chatgpt-on-iphone-via-siri/"><u>Empowering Conversations: Mastering ChatGPT on iPhone via Siri</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-infinix-zero-5g-2023-turbo-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Infinix Zero 5G 2023 Turbo Phones</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-itel-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Itel Phone? Unlock It Now</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-tutorial-for-instant-captioning-on-reels-videos-2021-edition/"><u>Step-by-Step Tutorial for Instant Captioning on Reels Videos - 2021 Edition</u></a></li>
-<li><a href="https://discover-data.techidaily.com/top-methods-for-streaming-pubg-mobile-onto-your-television-ultimate-guide/"><u>Top Methods for Streaming PUBG Mobile Onto Your Television: Ultimate Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/video-format-mastery-best-practices-for-instagram/"><u>Video Format Mastery Best Practices for Instagram</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-raw-footage-to-riveting-content-the-ultimate-guide-to-yt-video-edits-for-2024/"><u>[Updated] From Raw Footage to Riveting Content The Ultimate Guide to YT Video Edits for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-easy-to-use-zoom-camera-for-instant-sharing/"><u>2024 Approved Easy-to-Use Zoom Camera for Instant Sharing</u></a></li>
+<li><a href="https://extra-information.techidaily.com/are-there-alternatives-to-googles-ar-gems-in-2024/"><u>Are There Alternatives to Google's AR Gems, In 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/discover-the-top-10-no-cost-sound-mixers-on-your-android-smartphone/"><u>Discover the Top 10 No-Cost Sound Mixers on Your Android Smartphone!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-evolution-a-comprehensive-guide-to-comparing-openais-gpt-1-through-gpt-4/"><u>Exploring the Evolution: A Comprehensive Guide to Comparing OpenAI's GPT-1 Through GPT-4</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/frame-rate-considerations-for-high-quality-videos-for-2024/"><u>Frame Rate Considerations for High-Quality Videos for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/highest-quality-mac-image-capture-software-reviewed/"><u>Highest-Quality Mac Image Capture Software Reviewed</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-masterly-edit-your-videos-using-snapchats-tools-and-tricks/"><u>How to Masterly Edit Your Videos Using Snapchat's Tools and Tricks</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-apple-iphone-14-pro-max-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock Apple iPhone 14 Pro Max After Forgetting the Passcode?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-reclaim-full-volume-from-partially-muted-fb-tracks/"><u>In 2024, How to Reclaim Full Volume From Partially Muted FB Tracks</u></a></li>
+<li><a href="https://discover-data.techidaily.com/leading-web-based-photo-tweaking-tools-for-stunning-visual-results/"><u>Leading Web-Based Photo Tweaking Tools for Stunning Visual Results</u></a></li>
+<li><a href="https://discover-data.techidaily.com/pc-guide-mastering-the-fat-to-fit-challenge-a-step-by-step-walkthrough/"><u>PC Guide: Mastering the 'Fat to Fit' Challenge - A Step-by-Step Walkthrough</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme GT Neo 5 SE? | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/secure-windows-10-usage-comprehensive-guide-on-addressing-privacy-risks-using-malwarefox-tools/"><u>Secure Windows 10 Usage: Comprehensive Guide on Addressing Privacy Risks Using MalwareFox Tools</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-transferring-data-from-one-iphone-to-another/"><u>Step-by-Step Guide: Transferring Data From One iPhone to Another</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-meizu-21-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/top-tier-digital-resources-boosting-education-a-comprehensive-list-for-educators/"><u>Top-Tier Digital Resources Boosting Education: A Comprehensive List for Educators</u></a></li>
 </ul></div>
 
