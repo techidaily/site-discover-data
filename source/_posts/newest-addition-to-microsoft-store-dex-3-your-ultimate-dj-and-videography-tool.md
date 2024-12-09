@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2024-11-25T19:39:54.376Z
-updated: 2024-11-30T23:02:50.256Z
+date: 2024-12-06T23:20:27.855Z
+updated: 2024-12-08T16:07:10.588Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,18 +50,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-data.techidaily.com/comment-remettre-sur-tete-un-disque-dur-defectueux-les-solutions-innovantes-a-explorer/"><u>« Comment Remettre Sur Tête Un Disque Dur Défectueux ? Les Solutions Innovantes À Explorer »</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-best-free-desktop-recorders/"><u>[Updated] In 2024, Best Free Desktop Recorders</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728488246264-onedrive4/"><u>一锦云存储OneDrive同步问题的4个迅速抢救技巧</u></a></li>
-<li><a href="https://discover-data.techidaily.com/complete-guide-restoring-your-data-from-a-formatted-compact-flash-cf-card/"><u>Complete Guide: Restoring Your Data From a Formatted Compact Flash (CF) Card</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/defeating-the-crash-bug-mastering-troubleshooting-techniques-in-red-dead-redemption-ii-for-pc-users/"><u>Defeating the Crash Bug: Mastering Troubleshooting Techniques in Red Dead Redemption II for PC Users</u></a></li>
-<li><a href="https://discover-data.techidaily.com/hyper-v-stuck-on-deleting-a-checkpoint-discover-these-5-proven-fixes/"><u>Hyper-V Stuck on Deleting a Checkpoint? Discover These 5 Proven Fixes!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-realme-gt-5-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Realme GT 5 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-revitalized-interview-selections-for-podcasters/"><u>In 2024, Revitalized Interview Selections for Podcasters</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-depth-look-at-adobes-cloud-and-comparable-services-for-2024/"><u>In-Depth Look at Adobe's Cloud & Comparable Services for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/les-meilleurs-programmes-de-copie-dssd-vers-hdd-sans-erreur-de-lecture-ou-ecriture-selection-inland-exclusive/"><u>Les Meilleurs Programmes De Copie D'SSD Vers HDD Sans Erreur De Lecture Ou Écriture: Sélection Inland Exclusive</u></a></li>
-<li><a href="https://win-blog.techidaily.com/movavi-windows-program/"><u>Movavi Windows Program 로그인 가이드 - 사용자에게서</u></a></li>
-<li><a href="https://extra-support.techidaily.com/snap-to-it-ios-and-android-writers-choice-for-2024/"><u>Snap to It – iOS & Android' Writers’ Choice for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-counterplay-creative-ways-to-watch-youtube-in-reverse-for-2024/"><u>The Counterplay Creative Ways to Watch YouTube in Reverse for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-the-ultimate-watch-list-top-10-music-clips-on-facebook/"><u>[New] 2024 Approved The Ultimate Watch List Top 10 Music Clips on Facebook</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-clash-for-dominance-leading-royale-games/"><u>[Updated] 2024 Approved Clash for Dominance Leading Royale Games</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-captivating-audience-with-these-innovative-videos-for-2024/"><u>[Updated] Captivating Audience with These Innovative Videos for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-capturing-the-thrill-hero5-black-against-hero4-silver/"><u>[Updated] Capturing the Thrill Hero5 Black Against Hero4 Silver</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-unlocking-the-vault-discoverable-information-on-your-windows-system-expert-insights-from-yl-computing/"><u>1. Unlocking the Vault: Discoverable Information on Your Windows System - Expert Insights From YL Computing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/from-dank-to-viral-uncovering-the-secrets-behind-internet-memes/"><u>From Dank to Viral: Uncovering the Secrets Behind Internet Memes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How To Use Special Features - Virtual Location On Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-vivo-y77t-by-drfone-android/"><u>In 2024, How to Bypass FRP from Vivo Y77t?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-list-seamless-no-download-gif-to-video-converters/"><u>In 2024, Ultimate List Seamless No-Download GIF to Video Converters</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-cross-line-disruptions-a-guide-to-straightening-your-pc-display/"><u>Resolving Cross-Line Disruptions: A Guide to Straightening Your PC Display</u></a></li>
+<li><a href="https://discover-data.techidaily.com/saint-pattys-celebration-the-ultimate-setlist-of-10-must-play-tunes-for-any-dj-pcdj-guide/"><u>Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide</u></a></li>
+<li><a href="https://discover-data.techidaily.com/trezor-cybersecurity-probe-unmasking-the-phishing-scheme-and-insights-from-yl-computings-leadership/"><u>Trezor Cybersecurity Probe: Unmasking the Phishing Scheme & Insights From YL Computing's Leadership</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-the-causes-of-pc-crashes-a-comprehensive-guide-by-yl-computing/"><u>Understanding the Causes of PC Crashes: A Comprehensive Guide by YL Computing</u></a></li>
 </ul></div>
 

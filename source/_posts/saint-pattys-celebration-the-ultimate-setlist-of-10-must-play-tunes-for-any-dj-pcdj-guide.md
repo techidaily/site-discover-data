@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2024-11-24T23:48:49.235Z
-updated: 2024-11-30T19:42:06.806Z
+date: 2024-12-05T05:53:11.273Z
+updated: 2024-12-08T23:31:03.746Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,16 +85,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-comprelevant-listings-best-free-tools-to-watch-webm-videos/"><u>2024 Approved Comprelevant Listings Best Free Tools to Watch WebM Videos</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728502572052-d3/"><u>効果的にDドライブから失われたファイルを回収するための3通りのテクニック</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/best-5-high-end-drones-for-professionals-for-2024/"><u>Best 5 High-End Drones for Professionals for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/from-the-saddle-to-survival-a-zombie-apocalypse-journey-through-days-gone/"><u>From the Saddle to Survival: A Zombie Apocalypse Journey Through 'Days Gone'</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-fodt-file-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .fodt file electronically</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-pioneering-medical-messaging-in-digital-advertising/"><u>In 2024, Pioneering Medical Messaging in Digital Advertising</u></a></li>
-<li><a href="https://discover-data.techidaily.com/mastering-file-backups-in-windows-10-discover-the-two-best-approaches-for-secure-data-protection/"><u>Mastering File Backups in Windows 10: Discover the Two Best Approaches for Secure Data Protection</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rebooting-pc-for-new-install-of-wireless-nic/"><u>Rebooting PC for New Install of Wireless NIC</u></a></li>
-<li><a href="https://win-lab.techidaily.com/seamless-guide-setting-up-your-samsung-t7s-auto-backup-feature-with-simple-steps/"><u>Seamless Guide: Setting Up Your Samsung T7's Auto-Backup Feature with Simple Steps</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-transferring-photos-from-your-iphone-to-macbook-using-airdrop/"><u>Step-by-Step Guide: Transferring Photos From Your iPhone to MacBook Using AirDrop</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728477310553-wd/"><u>WD硬碟切換專家：高品質的全面或模擬系統克隆解決方案</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-stepwise-approach-implementing-luts-in-adobes-premiere-suite/"><u>[New] 2024 Approved Stepwise Approach Implementing LUTs in Adobe's Premiere Suite</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-comparing-dailymovements-and-youtubes-income-models-for-2024/"><u>[Updated] Comparing DailyMovement's and Youtube's Income Models for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/asus-pce-ac56-driver-troubleshooting-guide-for-windows-users-improved-solutions/"><u>ASUS PCE-AC56 Driver Troubleshooting Guide for Windows Users [IMPROVED SOLUTIONS]</u></a></li>
+<li><a href="https://discover-data.techidaily.com/building-your-crypto-asset-collection-a-step-by-step-guide-by-yl-computing/"><u>Building Your Crypto Asset Collection: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/gaming-frontier-exploration-premium-oculus-players-guide/"><u>Gaming Frontier Exploration Premium Oculus Players Guide</u></a></li>
+<li><a href="https://discover-data.techidaily.com/is-your-pcs-power-unit-working-correctly-learn-how-with-yl-software-expertise/"><u>Is Your PC's Power Unit Working Correctly? Learn How with YL Software Expertise</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-voice-communication-ios-tips-for-recording-calls/"><u>Mastering Voice Communication: IOS Tips for Recording Calls</u></a></li>
+<li><a href="https://discover-data.techidaily.com/methods-for-evaluating-your-pcs-psu-insights-from-yl-computing-experts/"><u>Methods for Evaluating Your PC's PSU - Insights From YL Computing Experts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/quiet-cinematic-dialogue-draft/"><u>Quiet Cinematic Dialogue Draft</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-common-mac-sound-problems-and-fixes-for-better-audio-quality/"><u>Solved! Common Mac Sound Problems & Fixes for Better Audio Quality</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-to-diagnose-and-fix-windows-hardware-failures-with-yl-software-solutions/"><u>Step-by-Step Guide to Diagnose and Fix Windows Hardware Failures with YL Software Solutions</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/step-by-step-optimization-techniques-for-windows-1011-users-on-dex-lyrx-or-pcdj-systems/"><u>Step-by-Step Optimization Techniques for Windows 10/11 Users on DEX, LYRX, or PCDJ Systems</u></a></li>
+<li><a href="https://discover-data.techidaily.com/stunning-aesthetic-hd-wallpaper-designs-for-mobile-devices-curated-by-yl-computings-expertise/"><u>Stunning Aesthetic HD Wallpaper Designs for Mobile Devices - Curated by YL Computing's Expertise</u></a></li>
+<li><a href="https://discover-data.techidaily.com/stunning-bmw-x6-in-scarlet-red-hd-wallpaper-designs-full-size-imagery-for-your-device-curated-by-yl-computing/"><u>Stunning BMW X6 in Scarlet Red HD Wallpaper Designs, Full-Size Imagery for Your Device - Curated by YL Computing</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-and-fixing-a-nonfunctional-hp-monitor/"><u>Troubleshooting and Fixing a Nonfunctional HP Monitor</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-the-mystery-of-windows-black-screen-an-expert-guide-yl-computing/"><u>Understanding the Mystery of Windows' Black Screen: An Expert Guide - YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlock-fresh-beats-subscribe-to-our-karaoke-service-and-enjoy-the-latest-addition-of-over-37-tracks-as-of-aug-26th-nj/"><u>Unlock Fresh Beats! Subscribe to Our Karaoke Service and Enjoy the Latest Addition of Over 37 Tracks as of Aug 26Th, Nj!</u></a></li>
 </ul></div>
 

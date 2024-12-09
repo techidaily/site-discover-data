@@ -1,7 +1,7 @@
 ---
 title: Launch of New PCDJ Dex 3 Skin Designer - Revamp Your DJ Software Look!
-date: 2024-11-28T01:30:24.197Z
-updated: 2024-11-30T16:09:16.227Z
+date: 2024-12-06T20:24:08.524Z
+updated: 2024-12-08T20:30:34.403Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [PCDJ DEX 3 DJ Software is now available](https://tools.techidaily.com/pcdj/products/), and we’ve released a new ‘Skin Designer’ that allows you to create and map your own DEX 3 skin easily.
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 The new graphics engine included with PCDJ DEX 3 is still _“skin based”_ – that simply means you can select a different skin in options to change the entire look and feel of the DEX 3 GUI (_Graphical User Interface_). DEX 3 already comes equip with all new [4-Deck](https://tools.techidaily.com/pcdj/products/) and [2-Deck](https://tools.techidaily.com/pcdj/products/) default skins at all (_high_) resolutions, each with a revamped [video mixing tab](https://tools.techidaily.com/pcdj/products/) (now with _separate preview windows_), effects grid tab and[![screenshot-video](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video-495x400.png?resize=495%2C400&ssl=1)](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video.png?ssl=1) sampler tab.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Our community is always looking for new user created and submitted skins we can include on PCDJ.com for download for DEX 3 (complete with credit to the author and quite possibly some other incentives if we choose to include the skin with the DEX 3 installer) Different DJs have different needs and requirements while mixing, so much of the time user submitted skins fill a niche that other DJs with similar needs gravitate to.
@@ -76,13 +76,13 @@ Again, if you plan to take a shot at creating a touch screen skin, which should 
 **DOWNLOAD LINK FOR THE EXISTING DEX 3 SKINS INCLUDED WITH THE SOFTWARE (_USE EXISTING SKINS TO LEARN THE SKIN DESIGNER OR AS TEMPLATES FOR YOUR SKIN_):**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **[DOWNLOAD ALL EXISTING DEX 3 SKINS HERE](https://tools.techidaily.com/pcdj/products/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -104,20 +104,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/07/dex3skindesignercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/updated-premium-camcorders-enhancing-podcasting/"><u>[Updated] Premium Camcorders Enhancing Podcasting</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/199-ipad-deal-on-labor-day-at-amazon-insider-tips-and-tricks-from-zdnet/"><u>$199 iPad Deal on Labor Day at Amazon – Insider Tips & Tricks From ZDNet</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-capture-and-preserve-windows-11-screens/"><u>2024 Approved Capture & Preserve Windows 11 Screens</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/android-capture-king-spam-free-edition/"><u>Android Capture King Spam-Free Edition</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/comment-resoudre-limpossibilite-de-creer-un-point-de-restauration-dans-windows-10/"><u>Comment Résoudre L'Impossibilité De Créer Un Point De Restauration Dans Windows 10</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728510156963-dell/"><u>Dellパソコンの新品同様再現手順 - 安心できる修復ガイド</u></a></li>
-<li><a href="https://discover-data.techidaily.com/effective-techniques-for-utilizing-windows-11s-volume-shadow-copy-feature-for-data-backups/"><u>Effective Techniques for Utilizing Windows 11'S Volume Shadow Copy Feature for Data Backups</u></a></li>
-<li><a href="https://discover-data.techidaily.com/fix-airdrops-missing-contact-names-in-seconds-tips-for-iphone-models-x-y-and-z/"><u>Fix AirDrop's Missing Contact Names in Seconds - Tips for iPhone Models X, Y & Z</u></a></li>
-<li><a href="https://discover-data.techidaily.com/lernen-sie-wie-sie-ihre-mobiltelefon-nachrichten-mithilfe-der-funktion-iphone-zu-iphone-ubertragen-konnen-3-effektive-methoden/"><u>Lernen Sie, Wie Sie Ihre Mobiltelefon-Nachrichten Mithilfe Der Funktion 'iPhone Zu iPhone' Übertragen Können: 3 Effektive Methoden</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-terraria-stability-issues-with-new-2024-fixes-and-hacks/"><u>Overcome Terraria Stability Issues with New 2024 Fixes and Hacks</u></a></li>
-<li><a href="https://win11.techidaily.com/separate-onedrive-and-microsoft-accounts-on-desktop-windows/"><u>Separate OneDrive & Microsoft Accounts on Desktop Windows</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/stop-receiving-windows-11-updates-without-trouble-a-simple-guide/"><u>Stop Receiving Windows 11 Updates Without Trouble: A Simple Guide</u></a></li>
-<li><a href="https://discover-data.techidaily.com/troubleshooting-guide-resolving-connection-issues-with-your-iphone-13-13-pro-or-pro-max-on-itunes/"><u>Troubleshooting Guide: Resolving Connection Issues with Your iPhone 13, 13 Pro or Pro Max on iTunes</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Oppo A1 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/zwei-effektive-methoden-um-google-drive-dateien-offline-zuganglich-zu-machen/"><u>Zwei Effektive Methoden, Um Google Drive Dateien Offline Zugänglich Zu Machen</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-ideal-sound-devices-for-digital-influencers/"><u>[New] 2024 Approved Ideal Sound Devices for Digital Influencers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-captivating-captions-a-triad-of-tips-for-insta-videos/"><u>[Updated] In 2024, Crafting Captivating Captions A Triad of Tips for Insta Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-leading-6-low-cost-superior-4k-tv-projectors/"><u>[Updated] Leading 6 Low-Cost, Superior 4K TV Projectors</u></a></li>
+<li><a href="https://discover-data.techidaily.com/explore-the-latest-aria-blue-themed-karaoke-program-download-and-test-karaoki-v087039-by-pcdj/"><u>Explore the Latest Aria Blue Themed Karaoke Program: Download & Test Karaoki v0.8.7039 by PCDJ</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-critique-an-in-depth-look-at-its-value-proposition-as-an-accessible-intelligent-watch/"><u>Fitbit Versa Critique: An In-Depth Look at Its Value Proposition as an Accessible Intelligent Watch</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-iphones-unresponsive-audio-buttons-quickly-using-these-7-remedies/"><u>Fix iPhone's Unresponsive Audio Buttons Quickly Using These 7 Remedies</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-can-you-tell-if-your-fan-is-losing-efficiency-expert-advice-from-yl-computing/"><u>How Can You Tell If Your Fan Is Losing Efficiency? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-efficient-techniques-for-removing-auto-selected-podcasts-from-spotify/"><u>In 2024, Efficient Techniques for Removing Auto-Selected Podcasts From Spotify</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-innocence-betrayed-consequences-of-acquiring-sham-supporters-in-social-media/"><u>In 2024, Innocence Betrayed Consequences of Acquiring Sham Supporters in Social Media</u></a></li>
+<li><a href="https://discover-data.techidaily.com/maximize-pc-performance-by-clearing-up-memory-space-guidance-from-yl-computing-solutions/"><u>Maximize PC Performance by Clearing Up Memory Space - Guidance From YL Computing Solutions</u></a></li>
+<li><a href="https://discover-data.techidaily.com/secure-your-system-against-threats-mastering-the-use-of-windows-defender-for-virus-scans-cyberguardian-guides/"><u>Secure Your System Against Threats: Mastering the Use of Windows Defender for Virus Scans - CyberGuardian Guides</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-moving-files-between-folders-on-windows-tech-solutions-by-yl/"><u>Step-by-Step Guide: Moving Files Between Folders on Windows - Tech Solutions by YL</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-scanning-issues-why-do-your-document-scans-appear-fuzzy-solutions-by-yl-technology/"><u>Understanding Scanning Issues: Why Do Your Document Scans Appear Fuzzy? Solutions by YL Technology</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-honor-magic-6-lite-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Honor Magic 6 Lite Phones</u></a></li>
 </ul></div>
 

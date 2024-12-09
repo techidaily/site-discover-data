@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2024-11-27T16:47:34.709Z
-updated: 2024-12-01T00:51:16.050Z
+date: 2024-12-02T06:56:43.206Z
+updated: 2024-12-09T00:07:02.114Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,22 +56,24 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-how-to-record-iphoneipads-screen-2023-latest-method/"><u>[New] 2024 Approved How to Record iPhone/iPad’s Screen [2023 Latest Method]</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-a-visual-extravaganza-detailed-examination-of-lg-ud88-uhd-tv-for-2024/"><u>[New] A Visual Extravaganza Detailed Examination of LG UD88-UHD TV for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/trengthen-your-footage-using-a-tripod-in-vlogging-for-2024/"><u>[New] Strengthen Your Footage Using a Tripod in Vlogging for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-aural-aesthetics-in-whatsapp-statues/"><u>[Updated] 2024 Approved Aural Aesthetics in WhatsApp Statues</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-reviewing-the-powerhouse-of-magixs-photo-toolkit/"><u>[Updated] 2024 Approved Reviewing the Powerhouse of MAGIX's Photo Toolkit</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-achieving-studio-quality-with-audacity/"><u>[Updated] In 2024, Achieving Studio Quality with Audacity</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728468296967-iphone/"><u>如何簡單地更新/下載和重新安裝你的iPhone驅動程式</u></a></li>
-<li><a href="https://discover-data.techidaily.com/come-salvaguardare-i-dati-con-un-solido-copia-di-segnaposto-per-il-tuo-disco-rigido-tecniche-e-consigli/"><u>Come Salvaguardare I Dati Con Un Solido Copia Di Segnaposto per Il Tuo Disco Rigido: Tecniche E Consigli</u></a></li>
-<li><a href="https://discover-data.techidaily.com/easy-steps-to-transfer-wireless-network-credentials-between-iphones/"><u>Easy Steps to Transfer Wireless Network Credentials Between iPhones</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/five-key-considerations-every-buyer-should-evaluate-before-acquiring-a-fitness-device/"><u>Five Key Considerations Every Buyer Should Evaluate Before Acquiring a Fitness Device</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-moto-g73-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Moto G73 5GFRP Lock</u></a></li>
-<li><a href="https://discover-data.techidaily.com/navigating-the-sunset-essential-steps-for-safeguarding-your-data-before-windows-server-2022-end-of-life/"><u>Navigating the Sunset: Essential Steps for Safeguarding Your Data Before Windows Server 2022 End of Life</u></a></li>
-<li><a href="https://discover-data.techidaily.com/professionelle-und-kostenlose-datensicherungslosungen-fur-windows-11-10-8-and-7-gratis-download-verfugbar/"><u>Professionelle Und Kostenlose Datensicherungslösungen Für Windows 11, 10, 8 & 7 | Gratis Download Verfügbar</u></a></li>
-<li><a href="https://discover-data.techidaily.com/resolved-issue-troubleshooting-windows-server-backups-inability-to-navigate-local-storage/"><u>Resolved Issue: Troubleshooting Windows Server Backup's Inability to Navigate Local Storage</u></a></li>
-<li><a href="https://discover-data.techidaily.com/techniques-facile-a-suivre-pour-transferer-en-toute-securite-windows-10-vers-un-support-cle-usb/"><u>Techniques Facile À Suivre Pour Transférer en Toute Sécurité Windows 10 Vers Un Support Clé USB</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-oneplus-12-frp-by-drfone-android/"><u>The Updated Method to Bypass OnePlus 12 FRP</u></a></li>
-<li><a href="https://discover-data.techidaily.com/word-3/"><u>Wordドキュメント再生成: システムクラッシュ解消に役立つ3方法</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-leading-8-linux-tools-for-seamless-editing/"><u>[Updated] 2024 Approved Leading 8 Linux Tools for Seamless Editing</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-delete-facebook-story-in-2024/"><u>[Updated] How to Delete Facebook Story, In 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-two-screen-titans-is-splitcam-supreme/"><u>[Updated] Two-Screen Titans Is SplitCam Supreme?</u></a></li>
+<li><a href="https://discover-data.techidaily.com/building-your-crypto-asset-collection-a-step-by-step-guide-by-yl-computing/"><u>Building Your Crypto Asset Collection: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-analysis-of-dji-mavic-3s-revolutionary-drone-photography/"><u>Comprehensive Analysis of DJI Mavic 3'S Revolutionary Drone Photography</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210932799-9781855846210-daily-contemplations/"><u>Daily Contemplations | Free Book</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/does-paying-regularly-for-youtube-premium-give-you-more-than-just-an-ad-free-view/"><u>Does Paying Regularly For YouTube Premium Give You More Than Just An Ad-Free View?</u></a></li>
+<li><a href="https://discover-data.techidaily.com/enhancing-your-pcs-efficiency-expert-tips-for-decluttering-and-boosting-speed-yl-tech-insights/"><u>Enhancing Your PC's Efficiency: Expert Tips for Decluttering and Boosting Speed - YL Tech Insights</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/expert-reviews-by-toms-gear-lab-comprehensive-hardware-analysis/"><u>Expert Reviews by Tom's Gear Lab - Comprehensive Hardware Analysis</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gravacao-simplificada-salvando-chamadas-de-video-do-messenger-por-meio-do-movavi-um-guia-detalhado/"><u>Gravação Simplificada: Salvando Chamadas De Vídeo Do Messenger Por Meio Do Movavi – Um Guia Detalhado</u></a></li>
+<li><a href="https://discover-data.techidaily.com/guide-activating-pdf-scanning-feature-in-your-windows-based-printer-techsolutions-by-yl/"><u>Guide: Activating PDF Scanning Feature in Your Windows-Based Printer - TechSolutions by YL</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-honor-v-purse-by-drfone-android/"><u>How to Show Wi-Fi Password on Honor V Purse</u></a></li>
+<li><a href="https://discover-data.techidaily.com/is-your-pcs-power-unit-working-correctly-learn-how-with-yl-software-expertise/"><u>Is Your PC's Power Unit Working Correctly? Learn How with YL Software Expertise</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-your-silent-phone-a-guide-to-restoring-ringtones-on-iphones/"><u>Solving Your Silent Phone: A Guide to Restoring Ringtones on iPhones</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-to-diagnose-and-fix-windows-hardware-failures-with-yl-software-solutions/"><u>Step-by-Step Guide to Diagnose and Fix Windows Hardware Failures with YL Software Solutions</u></a></li>
+<li><a href="https://discover-data.techidaily.com/stunning-aesthetic-hd-wallpaper-designs-for-mobile-devices-curated-by-yl-computings-expertise/"><u>Stunning Aesthetic HD Wallpaper Designs for Mobile Devices - Curated by YL Computing's Expertise</u></a></li>
+<li><a href="https://discover-data.techidaily.com/stunning-bmw-x6-in-scarlet-red-hd-wallpaper-designs-full-size-imagery-for-your-device-curated-by-yl-computing/"><u>Stunning BMW X6 in Scarlet Red HD Wallpaper Designs, Full-Size Imagery for Your Device - Curated by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-the-mystery-of-windows-black-screen-an-expert-guide-yl-computing/"><u>Understanding the Mystery of Windows' Black Screen: An Expert Guide - YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlock-fresh-beats-subscribe-to-our-karaoke-service-and-enjoy-the-latest-addition-of-over-37-tracks-as-of-aug-26th-nj/"><u>Unlock Fresh Beats! Subscribe to Our Karaoke Service and Enjoy the Latest Addition of Over 37 Tracks as of Aug 26Th, Nj!</u></a></li>
 </ul></div>
 
