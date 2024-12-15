@@ -1,7 +1,7 @@
 ---
 title: Launch of New PCDJ Dex 3 Skin Designer - Revamp Your DJ Software Look!
-date: 2024-12-06T20:24:08.524Z
-updated: 2024-12-08T20:30:34.403Z
+date: 2024-12-10T04:51:13.988Z
+updated: 2024-12-14T21:46:11.410Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [PCDJ DEX 3 DJ Software is now available](https://tools.techidaily.com/pcdj/products/), and we’ve released a new ‘Skin Designer’ that allows you to create and map your own DEX 3 skin easily.
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 The new graphics engine included with PCDJ DEX 3 is still _“skin based”_ – that simply means you can select a different skin in options to change the entire look and feel of the DEX 3 GUI (_Graphical User Interface_). DEX 3 already comes equip with all new [4-Deck](https://tools.techidaily.com/pcdj/products/) and [2-Deck](https://tools.techidaily.com/pcdj/products/) default skins at all (_high_) resolutions, each with a revamped [video mixing tab](https://tools.techidaily.com/pcdj/products/) (now with _separate preview windows_), effects grid tab and[![screenshot-video](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video-495x400.png?resize=495%2C400&ssl=1)](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video.png?ssl=1) sampler tab.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Our community is always looking for new user created and submitted skins we can include on PCDJ.com for download for DEX 3 (complete with credit to the author and quite possibly some other incentives if we choose to include the skin with the DEX 3 installer) Different DJs have different needs and requirements while mixing, so much of the time user submitted skins fill a niche that other DJs with similar needs gravitate to.
@@ -76,13 +76,13 @@ Again, if you plan to take a shot at creating a touch screen skin, which should 
 **DOWNLOAD LINK FOR THE EXISTING DEX 3 SKINS INCLUDED WITH THE SOFTWARE (_USE EXISTING SKINS TO LEARN THE SKIN DESIGNER OR AS TEMPLATES FOR YOUR SKIN_):**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **[DOWNLOAD ALL EXISTING DEX 3 SKINS HERE](https://tools.techidaily.com/pcdj/products/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -104,20 +104,15 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/07/dex3skindesignercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-ideal-sound-devices-for-digital-influencers/"><u>[New] 2024 Approved Ideal Sound Devices for Digital Influencers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-captivating-captions-a-triad-of-tips-for-insta-videos/"><u>[Updated] In 2024, Crafting Captivating Captions A Triad of Tips for Insta Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-leading-6-low-cost-superior-4k-tv-projectors/"><u>[Updated] Leading 6 Low-Cost, Superior 4K TV Projectors</u></a></li>
-<li><a href="https://discover-data.techidaily.com/explore-the-latest-aria-blue-themed-karaoke-program-download-and-test-karaoki-v087039-by-pcdj/"><u>Explore the Latest Aria Blue Themed Karaoke Program: Download & Test Karaoki v0.8.7039 by PCDJ</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/fitbit-versa-critique-an-in-depth-look-at-its-value-proposition-as-an-accessible-intelligent-watch/"><u>Fitbit Versa Critique: An In-Depth Look at Its Value Proposition as an Accessible Intelligent Watch</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fix-iphones-unresponsive-audio-buttons-quickly-using-these-7-remedies/"><u>Fix iPhone's Unresponsive Audio Buttons Quickly Using These 7 Remedies</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-can-you-tell-if-your-fan-is-losing-efficiency-expert-advice-from-yl-computing/"><u>How Can You Tell If Your Fan Is Losing Efficiency? - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-efficient-techniques-for-removing-auto-selected-podcasts-from-spotify/"><u>In 2024, Efficient Techniques for Removing Auto-Selected Podcasts From Spotify</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-innocence-betrayed-consequences-of-acquiring-sham-supporters-in-social-media/"><u>In 2024, Innocence Betrayed Consequences of Acquiring Sham Supporters in Social Media</u></a></li>
-<li><a href="https://discover-data.techidaily.com/maximize-pc-performance-by-clearing-up-memory-space-guidance-from-yl-computing-solutions/"><u>Maximize PC Performance by Clearing Up Memory Space - Guidance From YL Computing Solutions</u></a></li>
-<li><a href="https://discover-data.techidaily.com/secure-your-system-against-threats-mastering-the-use-of-windows-defender-for-virus-scans-cyberguardian-guides/"><u>Secure Your System Against Threats: Mastering the Use of Windows Defender for Virus Scans - CyberGuardian Guides</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-moving-files-between-folders-on-windows-tech-solutions-by-yl/"><u>Step-by-Step Guide: Moving Files Between Folders on Windows - Tech Solutions by YL</u></a></li>
-<li><a href="https://discover-data.techidaily.com/understanding-scanning-issues-why-do-your-document-scans-appear-fuzzy-solutions-by-yl-technology/"><u>Understanding Scanning Issues: Why Do Your Document Scans Appear Fuzzy? Solutions by YL Technology</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-honor-magic-6-lite-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Honor Magic 6 Lite Phones</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-jestful-journeys-an-in-depth-goofy-movie-review/"><u>[New] 'Jestful Journeys' An In-Depth Goofy Movie Review</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-essential-guide-to-saving-tv-broadcasts-online/"><u>[New] 2024 Approved Essential Guide to Saving TV Broadcasts Online</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-highlighting-the-best-practices-in-screen-recording-facetime-calls/"><u>[Updated] 2024 Approved Highlighting the Best Practices in Screen Recording FaceTime Calls</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-toggle-picture-in-picture-feature-for-youtube-app/"><u>[Updated] Toggle Picture-in-Picture Feature for Youtube App</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-quality-naruto-uzumaki-hd-wallpaper-collections-ultimate-backdrops-for-fans/"><u>High-Quality Naruto Uzumaki HD Wallpaper Collections - Ultimate Backdrops for Fans</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-fix-a-frozen-pc-expert-advice-from-yl-computing-and-yl-software/"><u>How to Fix a Frozen PC: Expert Advice From YL Computing & YL Software</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovate-impress-and-captivate-in-solo-podcasting-for-2024/"><u>Innovate, Impress, and Captivate in Solo Podcasting for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/navigating-march-updates-on-karaoke-cloud-pro-avoiding-potential-pitfalls/"><u>Navigating March Updates on Karaoke Cloud Pro - Avoiding Potential Pitfalls</u></a></li>
+<li><a href="https://discover-data.techidaily.com/pcdj-upgrades-with-relaop-terminal-mix-8-and-beatmix-groove-for-dj-controllers/"><u>PCDJ Upgrades with Relaop Terminal Mix 8 & BeatMix Groove for DJ Controllers</u></a></li>
 </ul></div>
 
