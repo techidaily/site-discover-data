@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2024-12-11T01:47:42.797Z
-updated: 2024-12-14T22:38:16.138Z
+date: 2024-12-18T20:14:58.456Z
+updated: 2024-12-23T18:30:33.705Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,22 +50,17 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-vegas-pro-21-the-new-standard-for-sportsbook-simplicity-and-complexity-for-2024/"><u>[New] Vegas Pro '21 - The New Standard for Sportsbook Simplicity & Complexity for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-boosting-exposure-posting-youtube-content-on-facebook-effectively/"><u>[Updated] 2024 Approved Boosting Exposure Posting YouTube Content on Facebook Effectively</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-crafting-dynamic-duo-videos-on-macos-sierra/"><u>[Updated] 2024 Approved Crafting Dynamic Duo Videos on macOS Sierra</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-instasong-rights-guidelines/"><u>[Updated] InstaSong Rights Guidelines</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1-master-the-timing-essential-tips-from-yl-computing-on-when-to-invest-in-crypto-assets/"><u>1. Master the Timing: Essential Tips From YL Computing on When to Invest in Crypto Assets</u></a></li>
-<li><a href="https://discover-data.techidaily.com/dynamic-hd-fire-animation-and-live-background-for-your-phone-ultra-hd-clarity-with-yls-expert-software/"><u>Dynamic HD Fire Animation & Live Background for Your Phone - Ultra-HD Clarity with YL's Expert Software</u></a></li>
-<li><a href="https://techtrends.techidaily.com/free-online-wmv-to-asf-file-transformation-with-movavi-platform/"><u>Free Online WMV-to-ASF File Transformation with Movavi Platform</u></a></li>
-<li><a href="https://discover-data.techidaily.com/high-definition-deathstroke-desktop-walls-premium-hd-graphics-and-imagery-by-yl-computing/"><u>High-Definition Deathstroke Desktop Walls: Premium HD Graphics and Imagery by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-can-i-optimize-my-computers-performance-essential-tips-from-yl-computing/"><u>How Can I Optimize My Computer's Performance: Essential Tips From YL Computing</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-maximizing-media-iphoneipad-download-youtube-videos-step-by-step/"><u>In 2024, Maximizing Media IPhone/iPad - Download Youtube Videos Step-by-Step</u></a></li>
-<li><a href="https://discover-data.techidaily.com/master-your-monitor-luminosity-adjust-display-settings-on-windows-t-insights-by-yl-software-solutions/"><u>Master Your Monitor Luminosity: Adjust Display Settings on Windows T – Insights by YL Software Solutions</u></a></li>
-<li><a href="https://discover-data.techidaily.com/revamp-your-connection-learn-how-to-refresh-network-adapter-drivers-with-tips-from-yl-software/"><u>Revamp Your Connection: Learn How to Refresh Network Adapter Drivers with Tips From YL Software</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-removing-unnecessary-programs-on-your-pc-tips-from-yl-computing/"><u>Step-by-Step Guide: Removing Unnecessary Programs on Your PC - Tips From YL Computing</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/strategies-to-implement-spatial-sound-on-windows-11/"><u>Strategies to Implement Spatial Sound on Windows 11</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-guide-for-effortless-youtube-shorts-design-for-2024/"><u>The Ultimate Guide for Effortless YouTube Shorts Design for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-lenovos-latest-thinkpad-x1-innovations-a-comprehensive-review/"><u>Unveiling Lenovo's Latest ThinkPad X1 Innovations: A Comprehensive Review</u></a></li>
-<li><a href="https://discover-data.techidaily.com/verifying-your-computers-ram-functionality-a-step-by-step-guide-by-yl-software/"><u>Verifying Your Computer's RAM Functionality: A Step-by-Step Guide - By YL Software</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-sonic-sanctuary-the-mac-experience/"><u>[New] Sonic Sanctuary The Mac Experience</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-essential-screen-snapping-tips-to-enhance-your-gaming-experience/"><u>2024 Approved Essential Screen-Snapping Tips to Enhance Your Gaming Experience</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-quality-naruto-uzumaki-hd-wallpaper-collections-ultimate-backdrops-for-fans/"><u>High-Quality Naruto Uzumaki HD Wallpaper Collections - Ultimate Backdrops for Fans</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-fix-a-frozen-pc-expert-advice-from-yl-computing-and-yl-software/"><u>How to Fix a Frozen PC: Expert Advice From YL Computing & YL Software</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-expert-tips-for-srt-enhanced-mp4-files/"><u>In 2024, Expert Tips for SRT-Enhanced MP4 Files</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-vr-lingo-core-terminology-guide/"><u>In 2024, Mastering the VR Lingo Core Terminology Guide</u></a></li>
+<li><a href="https://discover-data.techidaily.com/installuninstall-software-using-the-control-panel-tips-and-tricks-by-yl-computing-experts/"><u>Install/Uninstall Software Using the Control Panel: Tips & Tricks by YL Computing Experts</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/leading-ata-disk-copy-programs-for-sandisk-solid-state-drives-on-pc-systems/"><u>Leading ATA Disk Copy Programs for SanDisk Solid-State Drives on PC Systems</u></a></li>
+<li><a href="https://discover-data.techidaily.com/navigating-march-updates-on-karaoke-cloud-pro-avoiding-potential-pitfalls/"><u>Navigating March Updates on Karaoke Cloud Pro - Avoiding Potential Pitfalls</u></a></li>
+<li><a href="https://discover-data.techidaily.com/revamp-your-scanning-experience-enhance-image-quality-with-our-expert-tips-from-yl-software/"><u>Revamp Your Scanning Experience - Enhance Image Quality with Our Expert Tips From YL Software</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/techniques-to-overcome-flaws-with-non-working-ccleaner-in-win1011/"><u>Techniques to Overcome Flaws with Non-Working CCleaner in Win10/11</u></a></li>
 </ul></div>
 

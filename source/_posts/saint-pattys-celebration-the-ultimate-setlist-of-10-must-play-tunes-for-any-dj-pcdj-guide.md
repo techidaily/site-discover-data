@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2024-12-09T01:18:24.434Z
-updated: 2024-12-15T05:19:51.181Z
+date: 2024-12-22T22:54:32.667Z
+updated: 2024-12-24T00:26:58.766Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,22 +85,22 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-overcome-instagrams-story-upload-issues/"><u>[Updated] In 2024, Overcome Instagram's Story Upload Issues</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-resolving-fps-confusion-30vs60-for-high-quality-recordings/"><u>[Updated] In 2024, Resolving FPS Confusion 30Vs.60 For High-Quality Recordings</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-motorola-moto-g34-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Motorola Moto G34 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/diagnosing-your-memory-problems-a-comprehensive-guide-by-yl-computings-expertise/"><u>Diagnosing Your Memory Problems: A Comprehensive Guide by YL Computing's Expertise</u></a></li>
-<li><a href="https://discover-data.techidaily.com/ensure-optimal-performance-with-the-latest-gpu-drivers-expert-tips-by-yl-software/"><u>Ensure Optimal Performance with the Latest GPU Drivers: Expert Tips by YL Software</u></a></li>
-<li><a href="https://article-files.techidaily.com/exploring-vllo-experiences-for-2024/"><u>Exploring VLLO Experiences for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guidelines-for-restoring-timed-lock-screen-function/"><u>Guidelines for Restoring Timed Lock Screen Function</u></a></li>
-<li><a href="https://discover-data.techidaily.com/high-definition-wave-designs-premium-backgrounds-and-wallpaper-collection-by-yl-computing/"><u>High-Definition Wave Designs: Premium Backgrounds and Wallpaper Collection by YL Computing</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-ensure-smooth-gameplay-for-assassins-creed-syndicate-expert-anti-crash-solutions-in-202n4/"><u>How To Ensure Smooth Gameplay For Assassin's Creed Syndicate? Expert Anti-Crash Solutions in 202N4</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-fix-system-lag-post-graphics-card-update-expert-tips-from-yl-software-specialists/"><u>How to Fix System Lag Post-Graphics Card Update: Expert Tips From YL Software Specialists</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-motorola-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Motorola Phone without Any Data Loss</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-honor-x8b-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Honor X8b to iPhone | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/setting-up-vpn-connection-on-your-windows-pc-a-step-by-step-guide-with-yl-computing/"><u>Setting Up VPN Connection on Your Windows PC - A Step-by-Step Guide with YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-fixing-your-computer-by-replacing-faulty-ram-tips-from-yl-computing/"><u>Step-by-Step Guide: Fixing Your Computer by Replacing Faulty RAM - Tips From YL Computing</u></a></li>
-<li><a href="https://win-premium.techidaily.com/unlocking-creativity-with-microsofts-free-powertoys-mastering-fancyzones-in-windows-a-must-read-guide/"><u>Unlocking Creativity with Microsoft's Free PowerToys: Mastering FancyZones in Windows - A Must-Read Guide</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlocking-the-potential-and-pitfalls-of-digital-assets-with-yls-insight-into-crypto-investment-strategies/"><u>Unlocking the Potential and Pitfalls of Digital Assets with YL's Insight Into Crypto-Investment Strategies</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlocking-your-systems-potential-a-step-by-step-guide-to-accessing-administrative-tools-with-yl-computing/"><u>Unlocking Your System's Potential: A Step-by-Step Guide to Accessing Administrative Tools with YL Computing</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfected-panels-expert-recommended-photo-editing-screens/"><u>[New] 2024 Approved Perfected Panels Expert-Recommended Photo Editing Screens</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ailoring-audio-in-youtube-video-editors-for-enhanced-content/"><u>[New] Tailoring Audio in YouTube Video Editors for Enhanced Content</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-simplifying-the-process-of-video-integration-on-instagram/"><u>[Updated] In 2024, Simplifying the Process of Video Integration on Instagram</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1732515553497-yl/"><u>《大数字哲学解读：来自YL软件创始人的原创雪球思想系列》</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discovering-adaptability-with-patekfly-12-tripod-review/"><u>Discovering Adaptability with Patekfly 12 Tripod Review</u></a></li>
+<li><a href="https://discover-data.techidaily.com/efficiently-clear-out-junk-folders-and-files-on-your-machine-with-yl-softwares-easy-solutions/"><u>Efficiently Clear Out Junk Folders & Files on Your Machine with YL Software's Easy Solutions!</u></a></li>
+<li><a href="https://discover-data.techidaily.com/expert-analysis-on-common-reasons-for-memory-malfunctions-in-windows-environments-by-yl-software-specialists/"><u>Expert Analysis on Common Reasons for Memory Malfunctions in Windows Environments by YL Software Specialists</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-the-consequences-how-did-the-1945-1949-chinese-civil-war-reshape-history/"><u>Exploring the Consequences: How Did the 1945-1949 Chinese Civil War Reshape History?</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-effective-is-windows-defender-in-identifying-malware-and-threats-exploring-features-with-yl-software-experts/"><u>How Effective Is Windows Defender in Identifying Malware and Threats? Exploring Features with YL Software Experts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Vivo Y02T | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/pcdjs-dex-amoled-mixing-suite-elevating-the-art-of-digital-music-production/"><u>PCDJ's DEX Amoled Mixing Suite - Elevating the Art of Digital Music Production</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-removing-unnecessary-programs-on-your-pc-tips-from-yl-computing/"><u>Step-by-Step Guide: Removing Unnecessary Programs on Your PC - Tips From YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/thai-bank-kbank-acquires-satang-coin-a-strategic-leap-in-the-cryptocurrency-market-yl-computing-and-yl-software/"><u>Thai Bank KBank Acquires Satang Coin: A Strategic Leap in the Cryptocurrency Market - YL Computing & YL Software</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-complete-visual-journey-through-the-films-of-taylor-swift/"><u>The Complete Visual Journey Through the Films of Taylor Swift</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-power-of-free-enhancing-your-obs-studio-projects-using-luts-for-2024/"><u>The Power of Free Enhancing Your OBS Studio Projects Using LUTs for 2024</u></a></li>
+<li><a href="https://techidaily.com/why-are-your-photos-lost-from-iphone-se-2022-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why are your photos lost from iPhone SE (2022)? | Stellar</u></a></li>
 </ul></div>
 

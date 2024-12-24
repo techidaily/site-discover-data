@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2024-12-14T08:10:36.778Z
-updated: 2024-12-14T19:45:46.488Z
+date: 2024-12-17T18:39:37.478Z
+updated: 2024-12-23T19:04:13.154Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,20 +56,20 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-navigating-the-world-of-vr-playback-technology/"><u>[New] In 2024, Navigating the World of VR Playback Technology</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-transform-playtime-into-memories-with-switch-videos/"><u>[Updated] Transform Playtime Into Memories with Switch Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-enrich-your-viewing-habit-with-essential-movie-channels/"><u>2024 Approved Enrich Your Viewing Habit with Essential Movie Channels</u></a></li>
-<li><a href="https://discover-data.techidaily.com/diagnosing-your-memory-problems-a-comprehensive-guide-by-yl-computings-expertise/"><u>Diagnosing Your Memory Problems: A Comprehensive Guide by YL Computing's Expertise</u></a></li>
-<li><a href="https://discover-data.techidaily.com/ensure-optimal-performance-with-the-latest-gpu-drivers-expert-tips-by-yl-software/"><u>Ensure Optimal Performance with the Latest GPU Drivers: Expert Tips by YL Software</u></a></li>
-<li><a href="https://discover-data.techidaily.com/high-definition-wave-designs-premium-backgrounds-and-wallpaper-collection-by-yl-computing/"><u>High-Definition Wave Designs: Premium Backgrounds and Wallpaper Collection by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-fix-an-unresponsive-internet-connection-on-your-computer-with-tips-by-yl-tech-solutions/"><u>How to Fix an Unresponsive Internet Connection on Your Computer with Tips by YL Tech Solutions</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/is-it-appropriate-to-use-good-manners-with-digital-companebots-such-as-chatgpt-alexa-or-siri/"><u>Is It Appropriate to Use Good Manners With Digital Companebots Such as ChatGPT, Alexa, or Siri?</u></a></li>
-<li><a href="https://windows11.techidaily.com/mastering-quick-finds-in-illustrator-a-complete-guide-using-copernic/"><u>Mastering Quick Finds in Illustrator: A Complete Guide Using Copernic</u></a></li>
-<li><a href="https://discover-data.techidaily.com/setting-up-vpn-connection-on-your-windows-pc-a-step-by-step-guide-with-yl-computing/"><u>Setting Up VPN Connection on Your Windows PC - A Step-by-Step Guide with YL Computing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/step-by-step-guide-to-open-and-tweak-your-srt-on-mac-for-2024/"><u>Step-by-Step Guide to Open and Tweak Your SRT on Mac for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/strategy-for-successful-entry-fixing-common-chatgpt-errors/"><u>Strategy for Successful Entry: Fixing Common ChatGPT Errors</u></a></li>
-<li><a href="https://facebook.techidaily.com/taking-advantage-of-facebooks-725-million-settlement-provision/"><u>Taking Advantage of Facebook's $725 Million Settlement Provision</u></a></li>
-<li><a href="https://discover-data.techidaily.com/understanding-why-your-system-wont-detect-your-hard-drive-a-guide-by-yl-computing-and-yl-software-experts/"><u>Understanding Why Your System Won't Detect Your Hard Drive: A Guide by YL Computing & YL Software Experts</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlocking-your-systems-potential-a-step-by-step-guide-to-accessing-administrative-tools-with-yl-computing/"><u>Unlocking Your System's Potential: A Step-by-Step Guide to Accessing Administrative Tools with YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/can-you-recover-files-after-a-ransomware-hack-insights-by-yl-computing-and-yl-software/"><u>Can You Recover Files After a Ransomware Hack? - Insights by YL Computing & YL Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/effective-techniques-and-tools-for-identifying-bottlenecks-enhancing-your-computers-performance-insights-from-yl-computing/"><u>Effective Techniques & Tools for Identifying Bottlenecks: Enhancing Your Computer's Performance - Insights From YL Computing</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/from-idea-to-screenshot-a-mac-guide-to-ootd-tiktoks/"><u>From Idea to Screenshot A Mac Guide to OOTD TikToks</u></a></li>
+<li><a href="https://discover-data.techidaily.com/identifying-and-preventing-bitcoin-cons-deceptions-with-yl-software/"><u>Identifying and Preventing Bitcoin Cons Deceptions with YL Software</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-mastering-ppt-presentation-in-google-meet-mobile-and-laptop/"><u>In 2024, Mastering PPT Presentation in Google Meet (Mobile & Laptop)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-monetization-metrics-viewers-contribution-to-earnings/"><u>In 2024, Monetization Metrics Viewers' Contribution to Earnings</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-seamless-hd-viewing-top-10-android-video-apps/"><u>In 2024, Seamless HD Viewing Top 10 Android Video Apps</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/prime-day-oct-2024s-greatest-bargains-still-on-offer-top-picks-from-best-buy/"><u>Prime Day Oct 2024'S Greatest Bargains Still on Offer! - Top Picks From Best Buy</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-disabling-and-deleting-user-profiles-with-yl-computing-tools/"><u>Step-by-Step Guide: Disabling and Deleting User Profiles with YL Computing Tools</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-fixing-applications-via-control-panel-on-windows-tech-insight-by-yl/"><u>Step-by-Step Guide: Fixing Applications via Control Panel on Windows - Tech Insight by YL</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-picks-15-fantastic-free-uninstaller-programs-to-clean-your-system/"><u>Top Picks: 15 Fantastic Free Uninstaller Programs to Clean Your System</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-how-to-fix-a-non-functioning-mic-on-skype-for-windows-11-users/"><u>Troubleshooting Guide: How to Fix a Non-Functioning Mic on Skype for Windows 11 Users</u></a></li>
+<li><a href="https://discover-data.techidaily.com/ultimate-tutorial-navigating-through-text-documents-using-yl-computing-tools/"><u>Ultimate Tutorial: Navigating Through Text Documents Using YL Computing Tools</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlocking-the-secrets-to-navigating-past-documents-in-microsoft-windows-expert-advice-from-yl-software-solutions/"><u>Unlocking the Secrets to Navigating Past Documents in Microsoft Windows – Expert Advice From YL Software Solutions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-the-secrets-of-simultaneous-iphone-shots-and-videos/"><u>Unveiling the Secrets of Simultaneous iPhone Shots & Videos</u></a></li>
 </ul></div>
 
