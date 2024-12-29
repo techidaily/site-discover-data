@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2024-12-17T18:39:37.478Z
-updated: 2024-12-23T19:04:13.154Z
+date: 2024-12-27T20:39:22.981Z
+updated: 2024-12-29T17:59:09.265Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,20 +56,19 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-data.techidaily.com/can-you-recover-files-after-a-ransomware-hack-insights-by-yl-computing-and-yl-software/"><u>Can You Recover Files After a Ransomware Hack? - Insights by YL Computing & YL Software</u></a></li>
-<li><a href="https://discover-data.techidaily.com/effective-techniques-and-tools-for-identifying-bottlenecks-enhancing-your-computers-performance-insights-from-yl-computing/"><u>Effective Techniques & Tools for Identifying Bottlenecks: Enhancing Your Computer's Performance - Insights From YL Computing</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/from-idea-to-screenshot-a-mac-guide-to-ootd-tiktoks/"><u>From Idea to Screenshot A Mac Guide to OOTD TikToks</u></a></li>
-<li><a href="https://discover-data.techidaily.com/identifying-and-preventing-bitcoin-cons-deceptions-with-yl-software/"><u>Identifying and Preventing Bitcoin Cons Deceptions with YL Software</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-mastering-ppt-presentation-in-google-meet-mobile-and-laptop/"><u>In 2024, Mastering PPT Presentation in Google Meet (Mobile & Laptop)</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-monetization-metrics-viewers-contribution-to-earnings/"><u>In 2024, Monetization Metrics Viewers' Contribution to Earnings</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-seamless-hd-viewing-top-10-android-video-apps/"><u>In 2024, Seamless HD Viewing Top 10 Android Video Apps</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/prime-day-oct-2024s-greatest-bargains-still-on-offer-top-picks-from-best-buy/"><u>Prime Day Oct 2024'S Greatest Bargains Still on Offer! - Top Picks From Best Buy</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-disabling-and-deleting-user-profiles-with-yl-computing-tools/"><u>Step-by-Step Guide: Disabling and Deleting User Profiles with YL Computing Tools</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-fixing-applications-via-control-panel-on-windows-tech-insight-by-yl/"><u>Step-by-Step Guide: Fixing Applications via Control Panel on Windows - Tech Insight by YL</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-picks-15-fantastic-free-uninstaller-programs-to-clean-your-system/"><u>Top Picks: 15 Fantastic Free Uninstaller Programs to Clean Your System</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-how-to-fix-a-non-functioning-mic-on-skype-for-windows-11-users/"><u>Troubleshooting Guide: How to Fix a Non-Functioning Mic on Skype for Windows 11 Users</u></a></li>
-<li><a href="https://discover-data.techidaily.com/ultimate-tutorial-navigating-through-text-documents-using-yl-computing-tools/"><u>Ultimate Tutorial: Navigating Through Text Documents Using YL Computing Tools</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlocking-the-secrets-to-navigating-past-documents-in-microsoft-windows-expert-advice-from-yl-software-solutions/"><u>Unlocking the Secrets to Navigating Past Documents in Microsoft Windows – Expert Advice From YL Software Solutions</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unveiling-the-secrets-of-simultaneous-iphone-shots-and-videos/"><u>Unveiling the Secrets of Simultaneous iPhone Shots & Videos</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-a-beginners-pathway-building-a-simple-youtube-signup/"><u>[New] A Beginner’s Pathway Building a Simple YouTube Signup</u></a></li>
+<li><a href="https://driver-download.techidaily.com/comprehensive-fixes-for-realtek-wifi-connectivity-problems-in-windows-versions-11107/"><u>Comprehensive Fixes for Realtek WiFi Connectivity Problems in Windows Versions (11/10/7)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/diving-into-drones-syma-x5c-review-beginners-dream-uav-for-2024/"><u>Diving Into Drones? Syma X5C Review Beginner's Dream UAV for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/easy-steps-to-set-up-file-quick-links-in-windows-operating-system-with-yl-solutions/"><u>Easy Steps to Set Up File Quick Links in Windows Operating System with YL Solutions</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-non-windows-defender-antivirus-options-a-comprehensive-guide/"><u>Exploring Non-Windows Defender Antivirus Options: A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-the-latest-personalization-features-of-windows-11-a-detailed-overview-by-yl-computing/"><u>Exploring the Latest Personalization Features of Windows 11: A Detailed Overview by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-fix-your-computers-lag-or-freeze-problems-after-a-new-application-installation-advice-by-yl-solutions/"><u>How to Fix Your Computer's Lag or Freeze Problems After a New Application Installation - Advice by YL Solutions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-discover-the-top-6-phone-utilities-for-clean-image-cropping/"><u>In 2024, Discover the Top 6 Phone Utilities for Clean Image Cropping</u></a></li>
+<li><a href="https://discover-data.techidaily.com/is-your-pcs-power-unit-working-correctly-learn-how-with-yl-software-expertise/"><u>Is Your PC's Power Unit Working Correctly? Learn How with YL Software Expertise</u></a></li>
+<li><a href="https://discover-data.techidaily.com/methods-for-evaluating-your-pcs-psu-insights-from-yl-computing-experts/"><u>Methods for Evaluating Your PC's PSU - Insights From YL Computing Experts</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/overcoming-hurdles-ensuring-a-smooth-launch-of-battlefield-4-on-your-pc/"><u>Overcoming Hurdles: Ensuring a Smooth Launch of Battlefield 4 on Your PC</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/rotate-your-iphone-screen-back-to-landscape-easy-solutions/"><u>Rotate Your iPhone Screen Back to Landscape - Easy Solutions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/time-stretched-pixelation-the-ultimate-guide-to-cam-gear/"><u>Time-Stretched Pixelation The Ultimate Guide to Cam Gear</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-2024-cloud-offerings-price-and-efficacy-showdown/"><u>Top 2024 Cloud Offerings Price & Efficacy Showdown</u></a></li>
 </ul></div>
 

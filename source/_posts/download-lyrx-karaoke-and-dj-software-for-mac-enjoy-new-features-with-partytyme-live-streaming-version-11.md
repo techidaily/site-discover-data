@@ -1,7 +1,7 @@
 ---
 title: "Download LYRX Karaoke & DJ Software for Mac: Enjoy New Features with Partytyme Live Streaming - Version 1.1"
-date: 2024-12-18T19:48:01.181Z
-updated: 2024-12-24T04:57:00.021Z
+date: 2024-12-25T16:49:43.806Z
+updated: 2024-12-29T22:22:55.984Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New, Changed And Updated In LYRX Version 1.1
@@ -53,7 +53,7 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 **_Existing LYRX owners should download and install the free trial to overwrite and update their existing version (no activation required)_**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### LYRX Version 1.1 Image Gallery
@@ -61,13 +61,13 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 [![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot1.png?fit=1030%2C644&ssl=1 "LYRX V1.1 Screenshot")[![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot4.png?fit=1030%2C644&ssl=1 "LYRX Text, Image And Video Overlays")[![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot3.png?fit=1030%2C644&ssl=1 "LYRX Video Link Feature")[![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot2.png?fit=1030%2C644&ssl=1 "Party Tyme Karaoke On-Screen Lyrics")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Have questions about LYRX **karaoke software for MAC**, or the new Party Tyme **Karaoke Subscription**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -89,17 +89,20 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/lyrxpartytyme-coverimage.j
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/levate-your-social-media-impact-with-these-top-5-youtube-marketing-techniques-for-2024/"><u>[New] Elevate Your Social Media Impact with These Top 5 YouTube Marketing Techniques for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-top-picks-for-novice-gopro-enthusiasts-for-2024/"><u>[New] Top Picks for Novice GoPro Enthusiasts for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-no-more-costs-discover-best-free-camera-screen-recorder-apps/"><u>2024 Approved No More Costs? Discover Best FREE Camera Screen Recorder Apps</u></a></li>
-<li><a href="https://discover-data.techidaily.com/efficiently-convert-your-photos-in-batches-using-advanced-techniques-from-yl-computings-solutions/"><u>Efficiently Convert Your Photos in Batches Using Advanced Techniques From YL Computing's Solutions</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-optimize-editing-efficiency-using-xps-capabilities/"><u>In 2024, Optimize Editing Efficiency Using XP's Capabilities</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-8-by-drfone-ios/"><u>In 2024, Protecting Your Privacy How To Remove Apple ID From Apple iPhone 8</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/instant-trip-blueprints-made-easy-7-free-ai-planning-tools-with-chatgpt-features-to-kickstart-your-journey/"><u>Instant Trip Blueprints Made Easy - 7 FREE AI Planning Tools with ChatGPT Features to Kickstart Your Journey</u></a></li>
-<li><a href="https://discover-data.techidaily.com/lyrx-karaoke-application-v1202-now-available-for-mac-users-enhance-your-singing-experience-with-premium-features/"><u>LYRX Karaoke Application v1.2.0.2 Now Available for Mac Users: Enhance Your Singing Experience with Premium Features!</u></a></li>
-<li><a href="https://discover-data.techidaily.com/maintain-optimal-performance-while-ensuring-system-safety-insights-by-yl-software/"><u>Maintain Optimal Performance While Ensuring System Safety - Insights by YL Software</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/powershot-sx720hs-unveiled-portable-zoom-wonder/"><u>PowerShot SX720HS Unveiled: Portable Zoom Wonder</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-expert-guides-and-reviews/"><u>Tom's Tech Hub: Expert Guides and Reviews</u></a></li>
-<li><a href="https://discover-data.techidaily.com/verifying-current-installation-and-version-is-your-driving-program-by-yl-computing-up-to-date/"><u>Verifying Current Installation & Version: Is Your Driving Program by YL Computing Up-to-Date?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-20-essential-youtube-groups-navigating-stocks-for-2024/"><u>[New] 20 Essential YouTube Groups Navigating Stocks for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-analyzing-androids-best-editor-is-pickup-at-the-peak-of-performance/"><u>[New] Analyzing Android's Best Editor Is PickUp at the Peak of Performance?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>[New] In 2024, How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-mobile-mastery-premium-iphoneandroid-tripod-matches/"><u>[New] In 2024, Mobile Mastery Premium iPhone/Android Tripod Matches</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-monetizing-vlogs-a-step-by-step-blueprint/"><u>[New] In 2024, Monetizing Vlogs A Step-by-Step Blueprint</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/empower-your-professional-dialogue-with-ease/"><u>Empower Your Professional Dialogue with Ease</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-advantages-how-can-a-system-registry-improve-your-tech-experience-with-yl-computing-solutions/"><u>Exploring Advantages: How Can a System Registry Improve Your Tech Experience with YL Computing Solutions</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-the-advantages-of-digital-assets-insights-from-cryptocurrency-a-deep-dive-by-yl-computing/"><u>Exploring the Advantages of Digital Assets: Insights From Cryptocurrency - A Deep Dive by YL Computing</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/grandest-clash-of-titans-a-compilation-of-the-top-7-total-war-skirmishes-for-2024/"><u>Grandest Clash of Titans A Compilation of the Top 7 Total War Skirmishes for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-definition-wallpapers-and-backgrounds-featuring-liverpool-fc-premium-graphics-by-yl-computing/"><u>High-Definition Wallpapers & Backgrounds Featuring Liverpool FC - Premium Graphics by YL Computing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-achieve-higher-interactions-mastering-the-art-of-square-videos/"><u>In 2024, Achieve Higher Interactions Mastering the Art of Square Videos</u></a></li>
+<li><a href="https://discover-data.techidaily.com/rev-up-your-computers-speed-identifying-slowdown-culprits-with-guidance-from-yl-software-experts/"><u>Rev Up Your Computer's Speed: Identifying Slowdown Culprits with Guidance From YL Software Experts</u></a></li>
+<li><a href="https://discover-data.techidaily.com/scanner-drivers-updates-and-the-authoritative-sources-yl-computing-and-yl-software/"><u>Scanner Drivers, Updates, and the Authoritative Sources YL Computing and YL Software.</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/snap-into-style-expert-tips-to-outshine-the-competition/"><u>Snap Into Style Expert Tips to Outshine the Competition</u></a></li>
+<li><a href="https://discover-data.techidaily.com/yls-expert-tips-for-keeping-your-computer-cool-how-to-effectively-clean-the-system-fan-and-avoid-heat-damage/"><u>YL's Expert Tips for Keeping Your Computer Cool: How to Effectively Clean the System Fan and Avoid Heat Damage</u></a></li>
 </ul></div>
 

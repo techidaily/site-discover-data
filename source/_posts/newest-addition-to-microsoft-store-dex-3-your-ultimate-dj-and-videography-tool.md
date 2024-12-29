@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2024-12-18T20:14:58.456Z
-updated: 2024-12-23T18:30:33.705Z
+date: 2024-12-28T17:38:52.674Z
+updated: 2024-12-29T20:36:54.460Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,17 +50,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-sonic-sanctuary-the-mac-experience/"><u>[New] Sonic Sanctuary The Mac Experience</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-essential-screen-snapping-tips-to-enhance-your-gaming-experience/"><u>2024 Approved Essential Screen-Snapping Tips to Enhance Your Gaming Experience</u></a></li>
-<li><a href="https://discover-data.techidaily.com/high-quality-naruto-uzumaki-hd-wallpaper-collections-ultimate-backdrops-for-fans/"><u>High-Quality Naruto Uzumaki HD Wallpaper Collections - Ultimate Backdrops for Fans</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-fix-a-frozen-pc-expert-advice-from-yl-computing-and-yl-software/"><u>How to Fix a Frozen PC: Expert Advice From YL Computing & YL Software</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Vivo Y27 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-expert-tips-for-srt-enhanced-mp4-files/"><u>In 2024, Expert Tips for SRT-Enhanced MP4 Files</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-vr-lingo-core-terminology-guide/"><u>In 2024, Mastering the VR Lingo Core Terminology Guide</u></a></li>
-<li><a href="https://discover-data.techidaily.com/installuninstall-software-using-the-control-panel-tips-and-tricks-by-yl-computing-experts/"><u>Install/Uninstall Software Using the Control Panel: Tips & Tricks by YL Computing Experts</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/leading-ata-disk-copy-programs-for-sandisk-solid-state-drives-on-pc-systems/"><u>Leading ATA Disk Copy Programs for SanDisk Solid-State Drives on PC Systems</u></a></li>
-<li><a href="https://discover-data.techidaily.com/navigating-march-updates-on-karaoke-cloud-pro-avoiding-potential-pitfalls/"><u>Navigating March Updates on Karaoke Cloud Pro - Avoiding Potential Pitfalls</u></a></li>
-<li><a href="https://discover-data.techidaily.com/revamp-your-scanning-experience-enhance-image-quality-with-our-expert-tips-from-yl-software/"><u>Revamp Your Scanning Experience - Enhance Image Quality with Our Expert Tips From YL Software</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/techniques-to-overcome-flaws-with-non-working-ccleaner-in-win1011/"><u>Techniques to Overcome Flaws with Non-Working CCleaner in Win10/11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-savings-direct-link-and-alternative-extraction-for-2024/"><u>[Updated] Instagram Savings Direct Link & Alternative Extraction for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-the-changing-landscape-of-instagram-stories-for-2024/"><u>[Updated] Navigating the Changing Landscape of Instagram Stories for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-diagnosing-and-troubleshooting-pc-components-a-guide-by-yl-computing/"><u>1. Diagnosing and Troubleshooting PC Components: A Guide by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-unlocking-the-vault-discoverable-information-on-your-windows-system-expert-insights-from-yl-computing/"><u>1. Unlocking the Vault: Discoverable Information on Your Windows System - Expert Insights From YL Computing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-altitude-achievers-the-ultimate-long-duration-drones-top-10/"><u>2024 Approved Altitude Achievers The Ultimate Long Duration Drones (Top 10)</u></a></li>
+<li><a href="https://discover-data.techidaily.com/adjust-scan-options-for-enhanced-performance-tips-from-yl-software-expertise/"><u>Adjust Scan Options for Enhanced Performance: Tips From YL Software Expertise</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/adjusting-screen-resolution-after-upgrading-to-win10/"><u>Adjusting Screen Resolution After Upgrading to Win10</u></a></li>
+<li><a href="https://discover-data.techidaily.com/captivating-metropolitan-backdrops-premium-photo-library-and-backgrounds-curated-by-yl-software-yl-computing/"><u>Captivating Metropolitan Backdrops: Premium Photo Library and Backgrounds Curated by YL Software | YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-fix-windows-pc-not-detecting-new-hardware-expert-advice-from-yl-software/"><u>How to Fix Windows PC Not Detecting New Hardware: Expert Advice From YL Software</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-tecno-camon-20-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Tecno Camon 20 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-exclusive-list-of-budget-friendly-video-conferencing-tools/"><u>In 2024, Exclusive List of Budget-Friendly Video Conferencing Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/leveraging-the-strengths-what-usechatgpts-co-pilot-offers/"><u>Leveraging the Strengths: What UseChatGPT's Co-Pilot Offers</u></a></li>
+<li><a href="https://discover-data.techidaily.com/resolving-printer-error-messages-expert-tips-and-solutions-from-yl-computing/"><u>Resolving Printer Error Messages: Expert Tips & Solutions From YL Computing</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/spearhead-your-proposals-with-intelligent-chatgpt-tech/"><u>Spearhead Your Proposals with Intelligent ChatGPT Tech</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/survive-and-thrive-top-8-zombie-game-experiences-for-2024/"><u>Survive and Thrive Top 8 Zombie Game Experiences for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/troubleshooting-techniques-for-malfunctioning-power-units-expert-advice-from-yl-software/"><u>Troubleshooting Techniques for Malfunctioning Power Units: Expert Advice From YL Software</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-the-best-server-racks-and-cabinets-2024-edition/"><u>Ultimate Guide to the Best Server Racks and Cabinets - 2024 Edition</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-the-causes-of-pc-crashes-a-comprehensive-guide-by-yl-computing/"><u>Understanding the Causes of PC Crashes: A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/update-your-windows-navigating-preferences-with-ease-changing-the-default-search-engine-digitalwizardry/"><u>Update Your Windows Navigating Preferences with Ease: Changing the Default Search Engine - DigitalWizardry</u></a></li>
 </ul></div>
 

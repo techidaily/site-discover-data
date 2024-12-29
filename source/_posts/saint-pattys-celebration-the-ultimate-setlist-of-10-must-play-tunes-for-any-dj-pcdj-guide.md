@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2024-12-22T22:54:32.667Z
-updated: 2024-12-24T00:26:58.766Z
+date: 2024-12-23T19:24:14.518Z
+updated: 2024-12-29T22:30:10.508Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,22 +85,16 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-perfected-panels-expert-recommended-photo-editing-screens/"><u>[New] 2024 Approved Perfected Panels Expert-Recommended Photo Editing Screens</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ailoring-audio-in-youtube-video-editors-for-enhanced-content/"><u>[New] Tailoring Audio in YouTube Video Editors for Enhanced Content</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-simplifying-the-process-of-video-integration-on-instagram/"><u>[Updated] In 2024, Simplifying the Process of Video Integration on Instagram</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1732515553497-yl/"><u>《大数字哲学解读：来自YL软件创始人的原创雪球思想系列》</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discovering-adaptability-with-patekfly-12-tripod-review/"><u>Discovering Adaptability with Patekfly 12 Tripod Review</u></a></li>
-<li><a href="https://discover-data.techidaily.com/efficiently-clear-out-junk-folders-and-files-on-your-machine-with-yl-softwares-easy-solutions/"><u>Efficiently Clear Out Junk Folders & Files on Your Machine with YL Software's Easy Solutions!</u></a></li>
-<li><a href="https://discover-data.techidaily.com/expert-analysis-on-common-reasons-for-memory-malfunctions-in-windows-environments-by-yl-software-specialists/"><u>Expert Analysis on Common Reasons for Memory Malfunctions in Windows Environments by YL Software Specialists</u></a></li>
-<li><a href="https://discover-data.techidaily.com/exploring-the-consequences-how-did-the-1945-1949-chinese-civil-war-reshape-history/"><u>Exploring the Consequences: How Did the 1945-1949 Chinese Civil War Reshape History?</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-effective-is-windows-defender-in-identifying-malware-and-threats-exploring-features-with-yl-software-experts/"><u>How Effective Is Windows Defender in Identifying Malware and Threats? Exploring Features with YL Software Experts</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Google Pixel 8? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Vivo Y02T | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/pcdjs-dex-amoled-mixing-suite-elevating-the-art-of-digital-music-production/"><u>PCDJ's DEX Amoled Mixing Suite - Elevating the Art of Digital Music Production</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-removing-unnecessary-programs-on-your-pc-tips-from-yl-computing/"><u>Step-by-Step Guide: Removing Unnecessary Programs on Your PC - Tips From YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/thai-bank-kbank-acquires-satang-coin-a-strategic-leap-in-the-cryptocurrency-market-yl-computing-and-yl-software/"><u>Thai Bank KBank Acquires Satang Coin: A Strategic Leap in the Cryptocurrency Market - YL Computing & YL Software</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-complete-visual-journey-through-the-films-of-taylor-swift/"><u>The Complete Visual Journey Through the Films of Taylor Swift</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-power-of-free-enhancing-your-obs-studio-projects-using-luts-for-2024/"><u>The Power of Free Enhancing Your OBS Studio Projects Using LUTs for 2024</u></a></li>
-<li><a href="https://techidaily.com/why-are-your-photos-lost-from-iphone-se-2022-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why are your photos lost from iPhone SE (2022)? | Stellar</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-designing-customized-instagram-feed-narratives/"><u>[Updated] In 2024, Designing Customized Instagram Feed Narratives</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-a23-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/dealing-with-uncooperative-print-devices-expert-advice-by-yl-software/"><u>Dealing with Uncooperative Print Devices: Expert Advice by YL Software</u></a></li>
+<li><a href="https://win-updates.techidaily.com/golden-auto-themes-stunning-car-wallpaper-designs-and-vehicle-graphics-yl-computing-solutions/"><u>Golden Auto Themes: Stunning Car Wallpaper Designs & Vehicle Graphics - YL Computing Solutions</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-boost-your-pcs-performance-key-configurations-yl-computing-blog/"><u>How to Boost Your PC's Performance: Key Configurations - YL Computing Blog</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-realme-c53-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Realme C53</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-superior-free-viewing-software-guide-top-16/"><u>In 2024, Superior Free Viewing Software Guide - Top 16</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-device-driver-issues-in-windows-operating-systems/"><u>Resolving Device Driver Issues in Windows Operating Systems</u></a></li>
+<li><a href="https://discover-data.techidaily.com/resolving-issues-when-your-hard-disk-is-not-detected-by-file-explorer-a-guide-from-yl-software/"><u>Resolving Issues When Your Hard Disk Is Not Detected by File Explorer: A Guide From YL Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/supreme-beats-unleashed-experience-the-latest-bpm-supreme-app-from-dj-record-pool/"><u>Supreme Beats Unleashed: Experience the Latest BPM Supreme App From DJ Record Pool</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/466070-9780307574886-the-minds-sky/"><u>The Mind's Sky | Free Book</u></a></li>
 </ul></div>
 
