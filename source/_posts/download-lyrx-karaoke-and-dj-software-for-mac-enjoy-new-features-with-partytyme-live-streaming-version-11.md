@@ -1,7 +1,7 @@
 ---
 title: "Download LYRX Karaoke & DJ Software for Mac: Enjoy New Features with Partytyme Live Streaming - Version 1.1"
-date: 2024-12-25T16:49:43.806Z
-updated: 2024-12-29T22:22:55.984Z
+date: 2025-01-05T22:20:45.127Z
+updated: 2025-01-09T04:58:26.776Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New, Changed And Updated In LYRX Version 1.1
@@ -53,7 +53,7 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 **_Existing LYRX owners should download and install the free trial to overwrite and update their existing version (no activation required)_**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### LYRX Version 1.1 Image Gallery
@@ -61,13 +61,13 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 [![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot1.png?fit=1030%2C644&ssl=1 "LYRX V1.1 Screenshot")[![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot4.png?fit=1030%2C644&ssl=1 "LYRX Text, Image And Video Overlays")[![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot3.png?fit=1030%2C644&ssl=1 "LYRX Video Link Feature")[![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot2.png?fit=1030%2C644&ssl=1 "Party Tyme Karaoke On-Screen Lyrics")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Have questions about LYRX **karaoke software for MAC**, or the new Party Tyme **Karaoke Subscription**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -89,20 +89,20 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/lyrxpartytyme-coverimage.j
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-20-essential-youtube-groups-navigating-stocks-for-2024/"><u>[New] 20 Essential YouTube Groups Navigating Stocks for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-analyzing-androids-best-editor-is-pickup-at-the-peak-of-performance/"><u>[New] Analyzing Android's Best Editor Is PickUp at the Peak of Performance?</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>[New] In 2024, How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-mobile-mastery-premium-iphoneandroid-tripod-matches/"><u>[New] In 2024, Mobile Mastery Premium iPhone/Android Tripod Matches</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-monetizing-vlogs-a-step-by-step-blueprint/"><u>[New] In 2024, Monetizing Vlogs A Step-by-Step Blueprint</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/empower-your-professional-dialogue-with-ease/"><u>Empower Your Professional Dialogue with Ease</u></a></li>
-<li><a href="https://discover-data.techidaily.com/exploring-advantages-how-can-a-system-registry-improve-your-tech-experience-with-yl-computing-solutions/"><u>Exploring Advantages: How Can a System Registry Improve Your Tech Experience with YL Computing Solutions</u></a></li>
-<li><a href="https://discover-data.techidaily.com/exploring-the-advantages-of-digital-assets-insights-from-cryptocurrency-a-deep-dive-by-yl-computing/"><u>Exploring the Advantages of Digital Assets: Insights From Cryptocurrency - A Deep Dive by YL Computing</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/grandest-clash-of-titans-a-compilation-of-the-top-7-total-war-skirmishes-for-2024/"><u>Grandest Clash of Titans A Compilation of the Top 7 Total War Skirmishes for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/high-definition-wallpapers-and-backgrounds-featuring-liverpool-fc-premium-graphics-by-yl-computing/"><u>High-Definition Wallpapers & Backgrounds Featuring Liverpool FC - Premium Graphics by YL Computing</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-achieve-higher-interactions-mastering-the-art-of-square-videos/"><u>In 2024, Achieve Higher Interactions Mastering the Art of Square Videos</u></a></li>
-<li><a href="https://discover-data.techidaily.com/rev-up-your-computers-speed-identifying-slowdown-culprits-with-guidance-from-yl-software-experts/"><u>Rev Up Your Computer's Speed: Identifying Slowdown Culprits with Guidance From YL Software Experts</u></a></li>
-<li><a href="https://discover-data.techidaily.com/scanner-drivers-updates-and-the-authoritative-sources-yl-computing-and-yl-software/"><u>Scanner Drivers, Updates, and the Authoritative Sources YL Computing and YL Software.</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/snap-into-style-expert-tips-to-outshine-the-competition/"><u>Snap Into Style Expert Tips to Outshine the Competition</u></a></li>
-<li><a href="https://discover-data.techidaily.com/yls-expert-tips-for-keeping-your-computer-cool-how-to-effectively-clean-the-system-fan-and-avoid-heat-damage/"><u>YL's Expert Tips for Keeping Your Computer Cool: How to Effectively Clean the System Fan and Avoid Heat Damage</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-exquisite-expression-saver-perfecting-the-art-of-twitter-animations/"><u>[Updated] Exquisite Expression Saver - Perfecting the Art of Twitter Animations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-beijing-bid-wins-2022-winter-olympics-highlights/"><u>2024 Approved Beijing Bid Wins 2022 Winter Olympics Highlights</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-leveraging-zoom-for-optimal-productivity-in-win11-environments/"><u>2024 Approved Leveraging Zoom for Optimal Productivity in Win11 Environments</u></a></li>
+<li><a href="https://discover-data.techidaily.com/cryptocurrency-safety-guide-proactive-measures-against-scams-insights-by-yl-computing-software-specialists/"><u>Cryptocurrency Safety Guide: Proactive Measures Against Scams - Insights by YL Computing Software Specialists</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-the-scarcity-of-female-mobile-disc-jockeys-insights-and-opportunities/"><u>Exploring the Scarcity of Female Mobile Disc Jockeys: Insights and Opportunities</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-definition-image-collections-lonely-hd-wallpapers-and-backgrounds-by-yl-computing/"><u>High-Definition Image Collections: Lonely HD Wallpapers & Backgrounds by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/identifying-and-fixing-visual-anomalies-on-your-pc-expert-tips-from-yl-system-advisory/"><u>Identifying and Fixing Visual Anomalies on Your PC - Expert Tips From YL System Advisory</u></a></li>
+<li><a href="https://discover-data.techidaily.com/perfecting-the-party-skills-of-an-expert-kj-and-dj-techniques-in-private-carousels/"><u>Perfecting the Party: Skills of an Expert KJ & DJ Techniques in Private Carousels</u></a></li>
+<li><a href="https://win-forum.techidaily.com/removing-undetected-installed-software-on-windows-computers/"><u>Removing Undetected Installed Software on Windows Computers</u></a></li>
+<li><a href="https://discover-data.techidaily.com/revive-your-display-expert-fixes-for-corrupted-video-cards-in-windows-environments-by-yl-software-experts/"><u>Revive Your Display: Expert Fixes for Corrupted Video Cards in Windows Environments by YL Software Experts</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-s23-tactical-edition-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy S23 Tactical Edition Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/transforming-waste-into-art-how-recycled-plastics-become-excellent-3d-printing-materials/"><u>Transforming Waste Into Art: How Recycled Plastics Become Excellent 3D Printing Materials</u></a></li>
+<li><a href="https://discover-data.techidaily.com/undo-the-latest-changes-to-your-device-drivers-with-ease-expert-tips-for-windows-users/"><u>Undo the Latest Changes to Your Device Drivers with Ease - Expert Tips for Windows Users</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-the-past-masterful-techniques-for-retrieving-discarded-emails-from-your-gmail-inbox/"><u>Unlock the Past: Masterful Techniques for Retrieving Discarded Emails From Your Gmail Inbox</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/windows-11-problembehebung-erleichtern-sorgenumgrunde-aufklaren-und-losungsmoglichkeiten-prasentieren/"><u>Windows 11-Problembehebung Erleichtern: Sorgenumgründe Aufklären Und Lösungsmöglichkeiten Präsentieren</u></a></li>
 </ul></div>
 

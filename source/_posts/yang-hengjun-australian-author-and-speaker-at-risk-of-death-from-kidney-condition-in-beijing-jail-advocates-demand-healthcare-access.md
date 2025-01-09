@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2024-12-27T20:39:22.981Z
-updated: 2024-12-29T17:59:09.265Z
+date: 2025-01-06T23:41:08.566Z
+updated: 2025-01-08T22:08:47.069Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,19 +56,24 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-a-beginners-pathway-building-a-simple-youtube-signup/"><u>[New] A Beginner’s Pathway Building a Simple YouTube Signup</u></a></li>
-<li><a href="https://driver-download.techidaily.com/comprehensive-fixes-for-realtek-wifi-connectivity-problems-in-windows-versions-11107/"><u>Comprehensive Fixes for Realtek WiFi Connectivity Problems in Windows Versions (11/10/7)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/diving-into-drones-syma-x5c-review-beginners-dream-uav-for-2024/"><u>Diving Into Drones? Syma X5C Review Beginner's Dream UAV for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/easy-steps-to-set-up-file-quick-links-in-windows-operating-system-with-yl-solutions/"><u>Easy Steps to Set Up File Quick Links in Windows Operating System with YL Solutions</u></a></li>
-<li><a href="https://discover-data.techidaily.com/exploring-non-windows-defender-antivirus-options-a-comprehensive-guide/"><u>Exploring Non-Windows Defender Antivirus Options: A Comprehensive Guide</u></a></li>
-<li><a href="https://discover-data.techidaily.com/exploring-the-latest-personalization-features-of-windows-11-a-detailed-overview-by-yl-computing/"><u>Exploring the Latest Personalization Features of Windows 11: A Detailed Overview by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-fix-your-computers-lag-or-freeze-problems-after-a-new-application-installation-advice-by-yl-solutions/"><u>How to Fix Your Computer's Lag or Freeze Problems After a New Application Installation - Advice by YL Solutions</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-discover-the-top-6-phone-utilities-for-clean-image-cropping/"><u>In 2024, Discover the Top 6 Phone Utilities for Clean Image Cropping</u></a></li>
-<li><a href="https://discover-data.techidaily.com/is-your-pcs-power-unit-working-correctly-learn-how-with-yl-software-expertise/"><u>Is Your PC's Power Unit Working Correctly? Learn How with YL Software Expertise</u></a></li>
-<li><a href="https://discover-data.techidaily.com/methods-for-evaluating-your-pcs-psu-insights-from-yl-computing-experts/"><u>Methods for Evaluating Your PC's PSU - Insights From YL Computing Experts</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/overcoming-hurdles-ensuring-a-smooth-launch-of-battlefield-4-on-your-pc/"><u>Overcoming Hurdles: Ensuring a Smooth Launch of Battlefield 4 on Your PC</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/rotate-your-iphone-screen-back-to-landscape-easy-solutions/"><u>Rotate Your iPhone Screen Back to Landscape - Easy Solutions</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/time-stretched-pixelation-the-ultimate-guide-to-cam-gear/"><u>Time-Stretched Pixelation The Ultimate Guide to Cam Gear</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-2024-cloud-offerings-price-and-efficacy-showdown/"><u>Top 2024 Cloud Offerings Price & Efficacy Showdown</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-subject-shine-clearing-backdrop-in-photos/"><u>[Updated] Subject Shine Clearing Backdrop in Photos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-fb-content-windows-plus-mac-methods/"><u>[Updated] Unlocking FB Content Windows + Mac Methods</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/6-effective-strategies-to-overcome-iphone-apple-watch-pairing-problems/"><u>6 Effective Strategies to Overcome iPhone-Apple Watch Pairing Problems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/access-your-computers-internet-and-network-configuration-step-by-step-guide-by-yl-computing/"><u>Access Your Computer's Internet & Network Configuration - Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/boost-your-pcs-performance-essential-techniques-from-yl-software-to-enhance-hard-drive-speed/"><u>Boost Your PC's Performance: Essential Techniques From YL Software to Enhance Hard Drive Speed</u></a></li>
+<li><a href="https://fox-that.techidaily.com/bring-back-ringtone-for-texts-effective-solutions-for-iphones-sound-issues/"><u>Bring Back Ringtone for Texts: Effective Solutions for iPhones' Sound Issues</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-meizu-21-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Meizu 21? | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/discerning-reliable-crypto-exchange-platforms-insights-from-yl-computing/"><u>Discerning Reliable Crypto Exchange Platforms: Insights From YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-key-drivers-behind-cryptocurrency-valuation-insights-from-yl-computing/"><u>Exploring Key Drivers Behind Cryptocurrency Valuation: Insights From YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-the-functionality-of-control-panels-with-expertise-from-yl-computings-tech-team/"><u>Exploring the Functionality of Control Panels with Expertise From YL Computing's Tech Team</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-definition-natural-scenes-professional-hd-nature-photography-and-backdrops-by-yl-computing/"><u>High-Definition Natural Scenes: Professional HD Nature Photography & Backdrops by YL Computing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-f23-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo F23 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/mastering-audio-configuration-a-step-by-step-guide-to-controlling-sound-settings-via-the-windows-control-panel-tips-from-yl-computing/"><u>Mastering Audio Configuration: A Step-by-Step Guide to Controlling Sound Settings via the Windows Control Panel - Tips From YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/motherboard-malfunction-detection-guide-by-yl-software-professionals/"><u>Motherboard Malfunction Detection Guide by YL Software Professionals</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/partedlens-overview-for-2024/"><u>PartedLens Overview for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/revolutionizing-content-with-square-shapes-for-social-media-gains-for-2024/"><u>Revolutionizing Content with Square Shapes for Social Media Gains for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/step-by-step-selection-of-tiktok-screenshots-for-2024/"><u>Step-by-Step Selection of TikTok Screenshots for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/yl-software-explains-how-to-find-and-open-power-options-in-your-pcs-control-panel-easily/"><u>YL Software Explains How to Find and Open Power Options in Your PC's Control Panel Easily</u></a></li>
 </ul></div>
 

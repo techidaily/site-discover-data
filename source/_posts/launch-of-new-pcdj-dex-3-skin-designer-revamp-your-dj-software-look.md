@@ -1,7 +1,7 @@
 ---
 title: Launch of New PCDJ Dex 3 Skin Designer - Revamp Your DJ Software Look!
-date: 2024-12-27T21:47:00.826Z
-updated: 2024-12-29T22:24:55.394Z
+date: 2025-01-03T22:21:43.910Z
+updated: 2025-01-09T02:41:26.540Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [PCDJ DEX 3 DJ Software is now available](https://tools.techidaily.com/pcdj/products/), and we’ve released a new ‘Skin Designer’ that allows you to create and map your own DEX 3 skin easily.
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 The new graphics engine included with PCDJ DEX 3 is still _“skin based”_ – that simply means you can select a different skin in options to change the entire look and feel of the DEX 3 GUI (_Graphical User Interface_). DEX 3 already comes equip with all new [4-Deck](https://tools.techidaily.com/pcdj/products/) and [2-Deck](https://tools.techidaily.com/pcdj/products/) default skins at all (_high_) resolutions, each with a revamped [video mixing tab](https://tools.techidaily.com/pcdj/products/) (now with _separate preview windows_), effects grid tab and[![screenshot-video](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video-495x400.png?resize=495%2C400&ssl=1)](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video.png?ssl=1) sampler tab.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Our community is always looking for new user created and submitted skins we can include on PCDJ.com for download for DEX 3 (complete with credit to the author and quite possibly some other incentives if we choose to include the skin with the DEX 3 installer) Different DJs have different needs and requirements while mixing, so much of the time user submitted skins fill a niche that other DJs with similar needs gravitate to.
@@ -76,13 +76,13 @@ Again, if you plan to take a shot at creating a touch screen skin, which should 
 **DOWNLOAD LINK FOR THE EXISTING DEX 3 SKINS INCLUDED WITH THE SOFTWARE (_USE EXISTING SKINS TO LEARN THE SKIN DESIGNER OR AS TEMPLATES FOR YOUR SKIN_):**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **[DOWNLOAD ALL EXISTING DEX 3 SKINS HERE](https://tools.techidaily.com/pcdj/products/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -104,19 +104,17 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/07/dex3skindesignercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-achieve-cinematic-quality-with-ipad-time-lapses-for-2024/"><u>[Updated] Achieve Cinematic Quality with iPad Time-Lapses for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-premier-green-screen-tech-how-to-optimize-usage/"><u>[Updated] Premier Green Screen Tech How to Optimize Usage</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-simplified-guide-to-burning-audio-from-cds-using-wmp/"><u>2024 Approved Simplified Guide to Burning Audio From Cds Using WMP</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-nokia-105-classic-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Nokia 105 Classic by Name | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/choosing-the-ideal-tablet-comparing-features-of-the-m1-and-m2-ipad-pro-find-your-best-fit/"><u>Choosing the Ideal Tablet: Comparing Features of the M1 and M2 iPad Pro - Find Your Best Fit!</u></a></li>
-<li><a href="https://discover-data.techidaily.com/efficiently-convert-your-photos-in-batches-using-advanced-techniques-from-yl-computings-solutions/"><u>Efficiently Convert Your Photos in Batches Using Advanced Techniques From YL Computing's Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-affordable-power-of-samsung-galaxy-s10e-a-comprehensive-analysis/"><u>Exploring the Affordable Power of Samsung Galaxy S10e – A Comprehensive Analysis</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Infinix Smart 8? | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/lyrx-karaoke-application-v1202-now-available-for-mac-users-enhance-your-singing-experience-with-premium-features/"><u>LYRX Karaoke Application v1.2.0.2 Now Available for Mac Users: Enhance Your Singing Experience with Premium Features!</u></a></li>
-<li><a href="https://discover-data.techidaily.com/maintain-optimal-performance-while-ensuring-system-safety-insights-by-yl-software/"><u>Maintain Optimal Performance While Ensuring System Safety - Insights by YL Software</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/printer-disconnected-swift-fix/"><u>Printer Disconnected: Swift Fix</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-issues-with-non-responsive-applications-on-your-samsung-smart-tv/"><u>Resolving Issues with Non-Responsive Applications on Your Samsung Smart TV</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlocking-your-computers-registry-a-comprehensive-guide-from-yl-software-experts/"><u>Unlocking Your Computer's Registry: A Comprehensive Guide From YL Software Experts</u></a></li>
-<li><a href="https://discover-data.techidaily.com/verifying-current-installation-and-version-is-your-driving-program-by-yl-computing-up-to-date/"><u>Verifying Current Installation & Version: Is Your Driving Program by YL Computing Up-to-Date?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-7-top-free-instagram-video-clips-tools-for-daily-entertainment/"><u>[New] 2024 Approved 7 Top Free Instagram Video Clips Tools for Daily Entertainment</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-micro-influencer-approach-to-live-youtube-streams-from-mobile-for-2024/"><u>[New] Micro-Influencer Approach to Live Youtube Streams From Mobile for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-how-to-improve-video-quality-in-zoom-meetings/"><u>[Updated] How to Improve Video Quality in Zoom Meetings?</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-step-by-step-guide-updating-your-printers-drivers-successfully-insights-from-yl-computing/"><u>1. Step-by-Step Guide: Updating Your Printer's Drivers Successfully - Insights From YL Computing</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-iphone-xs-max-by-drfone-ios/"><u>How to Bypass iCloud Lock from iPhone XS Max</u></a></li>
+<li><a href="https://discover-data.techidaily.com/overcoming-print-obstacles-from-pc-expert-advice-by-yl-software/"><u>Overcoming Print Obstacles From PC: Expert Advice by YL Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/quiet-your-system-expert-advice-on-reducing-computer-cooling-noise-yl-technology-solutions/"><u>Quiet Your System: Expert Advice on Reducing Computer Cooling Noise - YL Technology Solutions</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-data-acquisition-issue-in-windows-os/"><u>Resolving Data Acquisition Issue in Windows OS</u></a></li>
+<li><a href="https://discover-data.techidaily.com/setting-up-external-peripherals-through-windows-control-panel-a-comprehensive-guide-by-yl-tech-solutions/"><u>Setting Up External Peripherals Through Windows' Control Panel - A Comprehensive Guide by YL Tech Solutions</u></a></li>
+<li><a href="https://discover-data.techidaily.com/ultimate-tutorial-navigating-through-text-documents-using-yl-computing-tools/"><u>Ultimate Tutorial: Navigating Through Text Documents Using YL Computing Tools</u></a></li>
+<li><a href="https://driver-download.techidaily.com/windows-10-update-now-includes-built-in-printer-and-scanner-drivers/"><u>Windows 10 Update Now Includes Built-In Printer & Scanner Drivers</u></a></li>
 </ul></div>
 

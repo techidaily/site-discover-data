@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2024-12-23T19:24:14.518Z
-updated: 2024-12-29T22:30:10.508Z
+date: 2025-01-01T19:28:33.497Z
+updated: 2025-01-08T17:38:33.438Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,16 +85,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-designing-customized-instagram-feed-narratives/"><u>[Updated] In 2024, Designing Customized Instagram Feed Narratives</u></a></li>
-<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-a23-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy A23 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/dealing-with-uncooperative-print-devices-expert-advice-by-yl-software/"><u>Dealing with Uncooperative Print Devices: Expert Advice by YL Software</u></a></li>
-<li><a href="https://win-updates.techidaily.com/golden-auto-themes-stunning-car-wallpaper-designs-and-vehicle-graphics-yl-computing-solutions/"><u>Golden Auto Themes: Stunning Car Wallpaper Designs & Vehicle Graphics - YL Computing Solutions</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-boost-your-pcs-performance-key-configurations-yl-computing-blog/"><u>How to Boost Your PC's Performance: Key Configurations - YL Computing Blog</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-realme-c53-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Realme C53</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-superior-free-viewing-software-guide-top-16/"><u>In 2024, Superior Free Viewing Software Guide - Top 16</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolving-device-driver-issues-in-windows-operating-systems/"><u>Resolving Device Driver Issues in Windows Operating Systems</u></a></li>
-<li><a href="https://discover-data.techidaily.com/resolving-issues-when-your-hard-disk-is-not-detected-by-file-explorer-a-guide-from-yl-software/"><u>Resolving Issues When Your Hard Disk Is Not Detected by File Explorer: A Guide From YL Software</u></a></li>
-<li><a href="https://discover-data.techidaily.com/supreme-beats-unleashed-experience-the-latest-bpm-supreme-app-from-dj-record-pool/"><u>Supreme Beats Unleashed: Experience the Latest BPM Supreme App From DJ Record Pool</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/466070-9780307574886-the-minds-sky/"><u>The Mind's Sky | Free Book</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-maximizing-income-average-adsense-payouts-per-thousand-viewers-for-2024/"><u>[Updated] Maximizing Income Average AdSense Payouts Per Thousand Viewers for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-step-by-step-guide-adjusting-region-and-language-preferences-on-your-pc-tips-from-yl-computing/"><u>1. Step-by-Step Guide: Adjusting Region & Language Preferences on Your PC - Tips From YL Computing</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pushing-boundaries-with-intova-x-action-tech/"><u>2024 Approved Pushing Boundaries with Intova X Action Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-spyro-reignited-trilogy-the-ultimate-hatchling-adventure-worth-every-penny/"><u>Comprehensive Evaluation of Spyro Reignited Trilogy - The Ultimate Hatchling Adventure Worth Every Penny</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-your-editing-the-ultimate-list-of-lightroom-luts/"><u>Elevate Your Editing The Ultimate List of LightRoom LUTs</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-itel-s23-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Itel S23 Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-definition-natural-scenes-professional-hd-nature-photography-and-backdrops-by-yl-computing/"><u>High-Definition Natural Scenes: Professional HD Nature Photography & Backdrops by YL Computing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-in-depth-review-mastering-facetunes-complete-features/"><u>In 2024, In-Depth Review Mastering Facetune's Complete Features</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-fixes-for-epic-games-fortnite-ls-0013-startup-bug/"><u>Resolved: Fixes for Epic Games Fortnite LS-0013 Startup Bug</u></a></li>
+<li><a href="https://discover-data.techidaily.com/setting-up-your-printer-configuration-through-the-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Setting Up Your Printer Configuration Through the Control Panel: A Step-by-Step Guide by YL Computing</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/transformer-un-gif-en-fichier-bmp-sans-frais-tutoriel-rapide-avec-movavi/"><u>Transformer Un GIF en Fichier BMP Sans Frais - Tutoriel Rapide Avec Movavi</u></a></li>
+<li><a href="https://discover-data.techidaily.com/troubleshooting-tips-solving-your-audio-issues-with-the-yl-computing-sound-system/"><u>Troubleshooting Tips: Solving Your Audio Issues with the YL Computing Sound System</u></a></li>
 </ul></div>
 

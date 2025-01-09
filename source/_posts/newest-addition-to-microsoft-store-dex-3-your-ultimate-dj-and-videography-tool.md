@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2024-12-28T17:38:52.674Z
-updated: 2024-12-29T20:36:54.460Z
+date: 2025-01-02T19:20:35.377Z
+updated: 2025-01-08T18:06:14.505Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,24 +50,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-savings-direct-link-and-alternative-extraction-for-2024/"><u>[Updated] Instagram Savings Direct Link & Alternative Extraction for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-navigating-the-changing-landscape-of-instagram-stories-for-2024/"><u>[Updated] Navigating the Changing Landscape of Instagram Stories for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1-diagnosing-and-troubleshooting-pc-components-a-guide-by-yl-computing/"><u>1. Diagnosing and Troubleshooting PC Components: A Guide by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1-unlocking-the-vault-discoverable-information-on-your-windows-system-expert-insights-from-yl-computing/"><u>1. Unlocking the Vault: Discoverable Information on Your Windows System - Expert Insights From YL Computing</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-altitude-achievers-the-ultimate-long-duration-drones-top-10/"><u>2024 Approved Altitude Achievers The Ultimate Long Duration Drones (Top 10)</u></a></li>
-<li><a href="https://discover-data.techidaily.com/adjust-scan-options-for-enhanced-performance-tips-from-yl-software-expertise/"><u>Adjust Scan Options for Enhanced Performance: Tips From YL Software Expertise</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/adjusting-screen-resolution-after-upgrading-to-win10/"><u>Adjusting Screen Resolution After Upgrading to Win10</u></a></li>
-<li><a href="https://discover-data.techidaily.com/captivating-metropolitan-backdrops-premium-photo-library-and-backgrounds-curated-by-yl-software-yl-computing/"><u>Captivating Metropolitan Backdrops: Premium Photo Library and Backgrounds Curated by YL Software | YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-fix-windows-pc-not-detecting-new-hardware-expert-advice-from-yl-software/"><u>How to Fix Windows PC Not Detecting New Hardware: Expert Advice From YL Software</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-tecno-camon-20-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Tecno Camon 20 Location Settings | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-exclusive-list-of-budget-friendly-video-conferencing-tools/"><u>In 2024, Exclusive List of Budget-Friendly Video Conferencing Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/leveraging-the-strengths-what-usechatgpts-co-pilot-offers/"><u>Leveraging the Strengths: What UseChatGPT's Co-Pilot Offers</u></a></li>
-<li><a href="https://discover-data.techidaily.com/resolving-printer-error-messages-expert-tips-and-solutions-from-yl-computing/"><u>Resolving Printer Error Messages: Expert Tips & Solutions From YL Computing</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/spearhead-your-proposals-with-intelligent-chatgpt-tech/"><u>Spearhead Your Proposals with Intelligent ChatGPT Tech</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/survive-and-thrive-top-8-zombie-game-experiences-for-2024/"><u>Survive and Thrive Top 8 Zombie Game Experiences for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/troubleshooting-techniques-for-malfunctioning-power-units-expert-advice-from-yl-software/"><u>Troubleshooting Techniques for Malfunctioning Power Units: Expert Advice From YL Software</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-to-the-best-server-racks-and-cabinets-2024-edition/"><u>Ultimate Guide to the Best Server Racks and Cabinets - 2024 Edition</u></a></li>
-<li><a href="https://discover-data.techidaily.com/understanding-the-causes-of-pc-crashes-a-comprehensive-guide-by-yl-computing/"><u>Understanding the Causes of PC Crashes: A Comprehensive Guide by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/update-your-windows-navigating-preferences-with-ease-changing-the-default-search-engine-digitalwizardry/"><u>Update Your Windows Navigating Preferences with Ease: Changing the Default Search Engine - DigitalWizardry</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unlock-15-simple-vlog-inspirations-today/"><u>[New] In 2024, Unlock 15 Simple Vlog Inspirations Today</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-instantaneous-video-and-picture-revival-on-snap/"><u>[New] Instantaneous Video & Picture Revival on Snap</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-streammaster-showdown-obs-or-shadowplay/"><u>[New] StreamMaster Showdown OBS or ShadowPlay?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-a-verified-instagram-account-essential-actions-for-rapid-follower-expansion/"><u>[Updated] In 2024, Crafting a Verified Instagram Account Essential Actions for Rapid Follower Expansion</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/comprehensively-understanding-iphones-recording-feature-for-2024/"><u>Comprehensively Understanding iPhone's Recording Feature for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/disabling-unwanted-notifications-icons-with-ease-expert-techniques-from-yl-computing-experts/"><u>Disabling Unwanted Notifications Icons with Ease: Expert Techniques From YL Computing Experts</u></a></li>
+<li><a href="https://discover-data.techidaily.com/effective-strategies-to-prevent-cyberattacks-insights-from-yl-computings-expertise/"><u>Effective Strategies to Prevent Cyberattacks: Insights From YL Computing's Expertise</u></a></li>
+<li><a href="https://discover-data.techidaily.com/explore-advanced-dj-mastery-using-pcdjs-latest-software-the-dex-3-feature-teaser/"><u>Explore Advanced DJ Mastery Using PCDJ's Latest Software - The Dex 3 Feature Teaser</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-reasons-behind-the-triumph-of-nintendos-wii-u/"><u>Exploring the Reasons Behind the Triumph of Nintendo's Wii U</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/is-aggregatorhostexe-in-windows-secure-exploring-its-role/"><u>Is AggregatorHost.exe in Windows Secure? Exploring Its Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-disconnect-steps-for-breaking-from-facebook/"><u>Mastering Disconnect: Steps for Breaking From Facebook</u></a></li>
+<li><a href="https://discover-data.techidaily.com/pioneering-educational-evolution-how-frobots-is-merging-blockchain-with-artifice-intelligence-for-future-classrooms-via-yl-computing/"><u>Pioneering Educational Evolution: How Frobots Is Merging Blockchain with Artifice Intelligence for Future Classrooms via YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/solve-your-printing-woes-with-ease-cleaning-techniques-for-blocked-printer-nozzles-by-yl-software-experts/"><u>Solve Your Printing Woes with Ease: Cleaning Techniques for Blocked Printer Nozzles by YL Software Experts</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-adjusting-your-computers-mouse-configuration-tips-from-yl-computing/"><u>Step-by-Step Guide: Adjusting Your Computer's Mouse Configuration - Tips From YL Computing</u></a></li>
+<li><a href="https://win-premium.techidaily.com/strategie-3-2-1-pour-la-sauvegarde-des-donnees-etapes-claires-pour-une-protection-efficace/"><u>Stratégie 3-2-1 Pour La Sauvegarde Des Données : Étapes Claires Pour Une Protection Efficace</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlock-advanced-web-extraction-strategies-navigating-yl-web-scraper-and-proxies-for-efficient-data-collection-a-complete-guide-by-yl-technologies/"><u>Unlock Advanced Web Extraction Strategies: Navigating YL Web Scraper & Proxies for Efficient Data Collection – A Complete Guide by YL Technologies</u></a></li>
+<li><a href="https://discover-data.techidaily.com/usb-upload-made-easy-how-to-save-powerpoint-presentations-on-external-drive-with-yl-software-expertise/"><u>USB Upload Made Easy: How to Save PowerPoint Presentations on External Drive with YL Software Expertise</u></a></li>
 </ul></div>
 
