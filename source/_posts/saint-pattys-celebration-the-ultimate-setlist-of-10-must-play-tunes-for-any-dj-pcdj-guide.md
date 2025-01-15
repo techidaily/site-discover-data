@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2025-01-01T19:28:33.497Z
-updated: 2025-01-08T17:38:33.438Z
+date: 2025-01-14T02:27:47.183Z
+updated: 2025-01-15T00:03:53.902Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,17 +85,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-maximizing-income-average-adsense-payouts-per-thousand-viewers-for-2024/"><u>[Updated] Maximizing Income Average AdSense Payouts Per Thousand Viewers for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1-step-by-step-guide-adjusting-region-and-language-preferences-on-your-pc-tips-from-yl-computing/"><u>1. Step-by-Step Guide: Adjusting Region & Language Preferences on Your PC - Tips From YL Computing</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-pushing-boundaries-with-intova-x-action-tech/"><u>2024 Approved Pushing Boundaries with Intova X Action Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-spyro-reignited-trilogy-the-ultimate-hatchling-adventure-worth-every-penny/"><u>Comprehensive Evaluation of Spyro Reignited Trilogy - The Ultimate Hatchling Adventure Worth Every Penny</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/elevate-your-editing-the-ultimate-list-of-lightroom-luts/"><u>Elevate Your Editing The Ultimate List of LightRoom LUTs</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-itel-s23-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Itel S23 Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/high-definition-natural-scenes-professional-hd-nature-photography-and-backdrops-by-yl-computing/"><u>High-Definition Natural Scenes: Professional HD Nature Photography & Backdrops by YL Computing</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-in-depth-review-mastering-facetunes-complete-features/"><u>In 2024, In-Depth Review Mastering Facetune's Complete Features</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-fixes-for-epic-games-fortnite-ls-0013-startup-bug/"><u>Resolved: Fixes for Epic Games Fortnite LS-0013 Startup Bug</u></a></li>
-<li><a href="https://discover-data.techidaily.com/setting-up-your-printer-configuration-through-the-control-panel-a-step-by-step-guide-by-yl-computing/"><u>Setting Up Your Printer Configuration Through the Control Panel: A Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/transformer-un-gif-en-fichier-bmp-sans-frais-tutoriel-rapide-avec-movavi/"><u>Transformer Un GIF en Fichier BMP Sans Frais - Tutoriel Rapide Avec Movavi</u></a></li>
-<li><a href="https://discover-data.techidaily.com/troubleshooting-tips-solving-your-audio-issues-with-the-yl-computing-sound-system/"><u>Troubleshooting Tips: Solving Your Audio Issues with the YL Computing Sound System</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-snip-youtube-videos-effortlessly/"><u>[Updated] 2024 Approved How to Snip YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-the-art-of-loop-creating-impactful-content-for-instagram/"><u>[Updated] Mastering the Art of Loop Creating Impactful Content for Instagram</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2023s-leading-advanced-robotic-mopping-systems/"><u>2023'S Leading Advanced Robotic Mopping Systems</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-bg-removal-in-figma-designs/"><u>2024 Approved Mastering BG Removal in Figma Designs</u></a></li>
+<li><a href="https://discover-data.techidaily.com/can-you-fix-malfunctioned-computer-components-on-a-windows-system-expert-advice-from-yl-computing/"><u>Can You Fix Malfunctioned Computer Components on a Windows System? - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/creating-your-own-account-on-yl-software-platforms-easy-tutorial-steps/"><u>Creating Your Own Account on YL Software Platforms: Easy Tutorial Steps</u></a></li>
+<li><a href="https://discover-data.techidaily.com/diy-solutions-for-a-faulty-pc-usb-port-restoration-techniques-by-yl-software-specialists/"><u>DIY Solutions for a Faulty PC USB Port Restoration Techniques by YL Software Specialists</u></a></li>
+<li><a href="https://discover-data.techidaily.com/download-high-definition-it-chapter-two-wallpapers-and-backgrounds-premium-quality-graphics-by-yl-computing/"><u>Download High-Definition It Chapter Two Wallpapers & Backgrounds - Premium Quality Graphics by YL Computing</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/find-your-perfect-match-top-picks-for-microsoft-office-competitors/"><u>Find Your Perfect Match: Top Picks for Microsoft Office Competitors</u></a></li>
+<li><a href="https://discover-data.techidaily.com/identifying-the-root-causes-behind-your-hard-drive-issues-expert-insights-from-yl-computing/"><u>Identifying the Root Causes Behind Your Hard Drive Issues - Expert Insights From YL Computing</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Vivo V27 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/save-fb-pages-with-a-click-top-8-tools-available-online-and-free/"><u>Save FB Pages with a Click Top 8 Tools Available Online & FREE</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steams-secure-contents-lock-error-effectively/"><u>Troubleshooting Steam's Secure Contents Lock Error Effectively</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unlocking-the-secret-restoring-your-iphone-independently-from-itunes/"><u>Unlocking the Secret: Restoring Your iPhone Independently From iTunes</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unveiling-initial-coin-offerings-a-guide-to-risks-and-rewards-by-yl-software-experts/"><u>Unveiling Initial Coin Offerings: A Guide to Risks and Rewards by YL Software Experts</u></a></li>
+<li><a href="https://discover-data.techidaily.com/yl-softwares-insights-easily-modify-monitor-resolution-for-optimal-viewing/"><u>YL Software's Insights: Easily Modify Monitor Resolution for Optimal Viewing</u></a></li>
 </ul></div>
 

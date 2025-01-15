@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2025-01-02T19:20:35.377Z
-updated: 2025-01-08T18:06:14.505Z
+date: 2025-01-11T22:48:38.565Z
+updated: 2025-01-15T01:04:20.554Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,22 +50,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-unlock-15-simple-vlog-inspirations-today/"><u>[New] In 2024, Unlock 15 Simple Vlog Inspirations Today</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-instantaneous-video-and-picture-revival-on-snap/"><u>[New] Instantaneous Video & Picture Revival on Snap</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-streammaster-showdown-obs-or-shadowplay/"><u>[New] StreamMaster Showdown OBS or ShadowPlay?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-crafting-a-verified-instagram-account-essential-actions-for-rapid-follower-expansion/"><u>[Updated] In 2024, Crafting a Verified Instagram Account Essential Actions for Rapid Follower Expansion</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/comprehensively-understanding-iphones-recording-feature-for-2024/"><u>Comprehensively Understanding iPhone's Recording Feature for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/disabling-unwanted-notifications-icons-with-ease-expert-techniques-from-yl-computing-experts/"><u>Disabling Unwanted Notifications Icons with Ease: Expert Techniques From YL Computing Experts</u></a></li>
-<li><a href="https://discover-data.techidaily.com/effective-strategies-to-prevent-cyberattacks-insights-from-yl-computings-expertise/"><u>Effective Strategies to Prevent Cyberattacks: Insights From YL Computing's Expertise</u></a></li>
-<li><a href="https://discover-data.techidaily.com/explore-advanced-dj-mastery-using-pcdjs-latest-software-the-dex-3-feature-teaser/"><u>Explore Advanced DJ Mastery Using PCDJ's Latest Software - The Dex 3 Feature Teaser</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-reasons-behind-the-triumph-of-nintendos-wii-u/"><u>Exploring the Reasons Behind the Triumph of Nintendo's Wii U</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/is-aggregatorhostexe-in-windows-secure-exploring-its-role/"><u>Is AggregatorHost.exe in Windows Secure? Exploring Its Role</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-disconnect-steps-for-breaking-from-facebook/"><u>Mastering Disconnect: Steps for Breaking From Facebook</u></a></li>
-<li><a href="https://discover-data.techidaily.com/pioneering-educational-evolution-how-frobots-is-merging-blockchain-with-artifice-intelligence-for-future-classrooms-via-yl-computing/"><u>Pioneering Educational Evolution: How Frobots Is Merging Blockchain with Artifice Intelligence for Future Classrooms via YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/solve-your-printing-woes-with-ease-cleaning-techniques-for-blocked-printer-nozzles-by-yl-software-experts/"><u>Solve Your Printing Woes with Ease: Cleaning Techniques for Blocked Printer Nozzles by YL Software Experts</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-adjusting-your-computers-mouse-configuration-tips-from-yl-computing/"><u>Step-by-Step Guide: Adjusting Your Computer's Mouse Configuration - Tips From YL Computing</u></a></li>
-<li><a href="https://win-premium.techidaily.com/strategie-3-2-1-pour-la-sauvegarde-des-donnees-etapes-claires-pour-une-protection-efficace/"><u>Stratégie 3-2-1 Pour La Sauvegarde Des Données : Étapes Claires Pour Une Protection Efficace</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlock-advanced-web-extraction-strategies-navigating-yl-web-scraper-and-proxies-for-efficient-data-collection-a-complete-guide-by-yl-technologies/"><u>Unlock Advanced Web Extraction Strategies: Navigating YL Web Scraper & Proxies for Efficient Data Collection – A Complete Guide by YL Technologies</u></a></li>
-<li><a href="https://discover-data.techidaily.com/usb-upload-made-easy-how-to-save-powerpoint-presentations-on-external-drive-with-yl-software-expertise/"><u>USB Upload Made Easy: How to Save PowerPoint Presentations on External Drive with YL Software Expertise</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-scripting-for-advanced-typography-in-after-effects/"><u>[New] Innovative Scripting for Advanced Typography in After Effects</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-visual-virtuosity-mastering-motivation-on-instagram/"><u>[Updated] 2024 Approved Visual Virtuosity Mastering Motivation on Instagram</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-joyful-jokes-on-pixels-35-best-mobile-apps/"><u>[Updated] Joyful Jokes on Pixels 35 Best Mobile Apps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-linguistic-leaders-list-of-top-33-apps-that-turn-videos-into-text/"><u>2024 Approved The Linguistic Leaders' List of Top 33 Apps That Turn Videos Into Text</u></a></li>
+<li><a href="https://discover-data.techidaily.com/decoding-digital-currency-a-comprehensive-explanation-from-yl-software/"><u>Decoding Digital Currency: A Comprehensive Explanation From YL Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-fix-system-lag-post-graphics-card-update-expert-tips-from-yl-software-specialists/"><u>How to Fix System Lag Post-Graphics Card Update: Expert Tips From YL Software Specialists</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-motorola-moto-g84-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Motorola Moto G84 5G Device</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-motorola-moto-g04-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Motorola Moto G04 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/optimal-srt-tweaks-elevating-your-computing/"><u>Optimal SRT Tweaks Elevating Your Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-fixing-your-computer-by-replacing-faulty-ram-tips-from-yl-computing/"><u>Step-by-Step Guide: Fixing Your Computer by Replacing Faulty RAM - Tips From YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-guide-updating-your-laptops-storage-with-a-new-hard-drive-tech-tips-from-yl-computing/"><u>Step-by-Step Guide: Updating Your Laptop's Storage with a New Hard Drive - Tech Tips From YL Computing</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/top-gear-tech-advice-the-toms-hardware-way/"><u>Top Gear Tech Advice - The Tom's Hardware Way</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlocking-the-potential-and-pitfalls-of-digital-assets-with-yls-insight-into-crypto-investment-strategies/"><u>Unlocking the Potential and Pitfalls of Digital Assets with YL's Insight Into Crypto-Investment Strategies</u></a></li>
+<li><a href="https://discover-data.techidaily.com/why-does-my-computer-fan-shut-off-unexpectedly-expert-diagnosis-and-solutions-from-yl-computing/"><u>Why Does My Computer Fan Shut Off Unexpectedly? Expert Diagnosis & Solutions From YL Computing</u></a></li>
 </ul></div>
 

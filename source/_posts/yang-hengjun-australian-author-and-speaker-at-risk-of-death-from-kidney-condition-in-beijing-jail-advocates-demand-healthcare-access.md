@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2025-01-06T23:41:08.566Z
-updated: 2025-01-08T22:08:47.069Z
+date: 2025-01-09T19:53:00.152Z
+updated: 2025-01-14T23:53:16.874Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,24 +56,24 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-subject-shine-clearing-backdrop-in-photos/"><u>[Updated] Subject Shine Clearing Backdrop in Photos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-fb-content-windows-plus-mac-methods/"><u>[Updated] Unlocking FB Content Windows + Mac Methods</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/6-effective-strategies-to-overcome-iphone-apple-watch-pairing-problems/"><u>6 Effective Strategies to Overcome iPhone-Apple Watch Pairing Problems</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/access-your-computers-internet-and-network-configuration-step-by-step-guide-by-yl-computing/"><u>Access Your Computer's Internet & Network Configuration - Step-by-Step Guide by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/boost-your-pcs-performance-essential-techniques-from-yl-software-to-enhance-hard-drive-speed/"><u>Boost Your PC's Performance: Essential Techniques From YL Software to Enhance Hard Drive Speed</u></a></li>
-<li><a href="https://fox-that.techidaily.com/bring-back-ringtone-for-texts-effective-solutions-for-iphones-sound-issues/"><u>Bring Back Ringtone for Texts: Effective Solutions for iPhones' Sound Issues</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-meizu-21-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Meizu 21? | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/discerning-reliable-crypto-exchange-platforms-insights-from-yl-computing/"><u>Discerning Reliable Crypto Exchange Platforms: Insights From YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/exploring-key-drivers-behind-cryptocurrency-valuation-insights-from-yl-computing/"><u>Exploring Key Drivers Behind Cryptocurrency Valuation: Insights From YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/exploring-the-functionality-of-control-panels-with-expertise-from-yl-computings-tech-team/"><u>Exploring the Functionality of Control Panels with Expertise From YL Computing's Tech Team</u></a></li>
-<li><a href="https://discover-data.techidaily.com/high-definition-natural-scenes-professional-hd-nature-photography-and-backdrops-by-yl-computing/"><u>High-Definition Natural Scenes: Professional HD Nature Photography & Backdrops by YL Computing</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-f23-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo F23 5G to Laptop Without USB | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/mastering-audio-configuration-a-step-by-step-guide-to-controlling-sound-settings-via-the-windows-control-panel-tips-from-yl-computing/"><u>Mastering Audio Configuration: A Step-by-Step Guide to Controlling Sound Settings via the Windows Control Panel - Tips From YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/motherboard-malfunction-detection-guide-by-yl-software-professionals/"><u>Motherboard Malfunction Detection Guide by YL Software Professionals</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/partedlens-overview-for-2024/"><u>PartedLens Overview for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/revolutionizing-content-with-square-shapes-for-social-media-gains-for-2024/"><u>Revolutionizing Content with Square Shapes for Social Media Gains for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/step-by-step-selection-of-tiktok-screenshots-for-2024/"><u>Step-by-Step Selection of TikTok Screenshots for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/yl-software-explains-how-to-find-and-open-power-options-in-your-pcs-control-panel-easily/"><u>YL Software Explains How to Find and Open Power Options in Your PC's Control Panel Easily</u></a></li>
+<li><a href="https://discover-data.techidaily.com/perdiste-su-carpeta-de-windows-10-o-11-conectese-para-recuperarla-rapidamente/"><u>¿Perdiste Su Carpeta De Windows 10 O 11? Conéctese Para Recuperarla Rápidamente</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-from-novice-to-expert-learning-the-ins-and-outs-of-instagram-hashtags-for-2024/"><u>[New] From Novice to Expert Learning the Ins and Outs of Instagram Hashtags for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-by-step-drawing-faces-on-snapchat/"><u>[New] In 2024, Step-by-Step Drawing Faces on Snapchat</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/onitor-top-youtube-videos-select-rank-trackers-guide-for-2024/"><u>[New] Monitor Top YouTube Videos - Select Rank Trackers Guide for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-secure-your-travel-documents-grab-10-free-passport-photos-onlinedesktop/"><u>[New] Secure Your Travel Documents Grab 10 FREE Passport Photos Online/Desktop</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-webinar-session-screening/"><u>[New] Webinar Session Screening</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-freezing-your-window-windows-screenshoting-guide-for-2024/"><u>[Updated] Freezing Your Window Windows Screenshoting Guide for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1726028945690-1080p/"><u>「1080Pの解像度でニコニコ動画をダウンロードする究極ガイド」</u></a></li>
+<li><a href="https://discover-data.techidaily.com/biografia-completa-y-descriptiva-de-shirley-una-obra-maestra-por-aomei/"><u>Biografía Completa Y Descriptiva De Shirley - Una Obra Maestra Por AOMEI</u></a></li>
+<li><a href="https://discover-data.techidaily.com/come-risolvere-gli-errori-di-backup-non-riusciti-nel-sistema-operativo-windows-10/"><u>Come Risolvere Gli Errori Di Backup Non Riusciti Nel Sistema Operativo Windows 10</u></a></li>
+<li><a href="https://discover-data.techidaily.com/complete-handbook-on-resolving-sudden-pc-lockups/"><u>Complete Handbook on Resolving Sudden PC Lockups</u></a></li>
+<li><a href="https://discover-data.techidaily.com/dropbox3/"><u>Dropbox上の既定削除ファイルを完璧に回復する3つのテクニック</u></a></li>
+<li><a href="https://discover-data.techidaily.com/guida-passo-passo-per-eseguire-il-backup-completo-del-sistema-su-windows-10/"><u>Guida Passo-Passo per Eseguire Il Backup Completo Del Sistema Su Windows 10</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-set-up-iphone-14-plus-face-id-by-drfone-ios-unlock-ios-unlock/"><u>How to Set up iPhone 14 Plus Face ID?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Motorola Razr 40? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-oppo-k11x-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Oppo K11x for Streaming | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/schnelles-ubertragen-ihrer-hdds-auf-ssd-speicher-unter-verwendung-von-windows-anleitung-fur-versionen-111087/"><u>Schnelles Übertragen Ihrer HDDs Auf SSD-Speicher Unter Verwendung Von Windows - Anleitung Für Versionen 11/10/8/7</u></a></li>
+<li><a href="https://discover-data.techidaily.com/top-no-cost-tools-for-seamless-windows-11-migration-discover-aomei-backupper/"><u>Top No-Cost Tools for Seamless Windows 11 Migration: Discover AOMEI Backupper</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1728483175065-windowsxcopy/"><u>Windows上で最強のファイルコピーツールを発見：XCopyの至高の代替品</u></a></li>
 </ul></div>
 
