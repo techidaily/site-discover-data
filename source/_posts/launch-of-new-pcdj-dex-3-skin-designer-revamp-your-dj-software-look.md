@@ -1,7 +1,7 @@
 ---
 title: Launch of New PCDJ Dex 3 Skin Designer - Revamp Your DJ Software Look!
-date: 2025-01-08T23:02:25.131Z
-updated: 2025-01-14T19:24:08.714Z
+date: 2025-01-15T19:49:23.756Z
+updated: 2025-01-21T00:52:25.707Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [PCDJ DEX 3 DJ Software is now available](https://tools.techidaily.com/pcdj/products/), and we’ve released a new ‘Skin Designer’ that allows you to create and map your own DEX 3 skin easily.
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 The new graphics engine included with PCDJ DEX 3 is still _“skin based”_ – that simply means you can select a different skin in options to change the entire look and feel of the DEX 3 GUI (_Graphical User Interface_). DEX 3 already comes equip with all new [4-Deck](https://tools.techidaily.com/pcdj/products/) and [2-Deck](https://tools.techidaily.com/pcdj/products/) default skins at all (_high_) resolutions, each with a revamped [video mixing tab](https://tools.techidaily.com/pcdj/products/) (now with _separate preview windows_), effects grid tab and[![screenshot-video](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video-495x400.png?resize=495%2C400&ssl=1)](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video.png?ssl=1) sampler tab.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Our community is always looking for new user created and submitted skins we can include on PCDJ.com for download for DEX 3 (complete with credit to the author and quite possibly some other incentives if we choose to include the skin with the DEX 3 installer) Different DJs have different needs and requirements while mixing, so much of the time user submitted skins fill a niche that other DJs with similar needs gravitate to.
@@ -76,13 +76,13 @@ Again, if you plan to take a shot at creating a touch screen skin, which should 
 **DOWNLOAD LINK FOR THE EXISTING DEX 3 SKINS INCLUDED WITH THE SOFTWARE (_USE EXISTING SKINS TO LEARN THE SKIN DESIGNER OR AS TEMPLATES FOR YOUR SKIN_):**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **[DOWNLOAD ALL EXISTING DEX 3 SKINS HERE](https://tools.techidaily.com/pcdj/products/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -104,16 +104,15 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/07/dex3skindesignercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-memorable-moments-downloading-tweets-emotive-graphics/"><u>[New] Memorable Moments Downloading Tweets’ Emotive Graphics</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-ultimate-guide-to-finding-free-westeros-ringtones/"><u>[Updated] 2024 Approved The Ultimate Guide to Finding Free Westeros Ringtones</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-precision-based-adjustments-for-maximum-impact-on-instagram-tv/"><u>[Updated] In 2024, Precision-Based Adjustments for Maximum Impact on Instagram TV</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-classic-comedy-compilation-a-goofy-movie-review/"><u>2024 Approved Classic Comedy Compilation A 'Goofy Movie' Review</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728493813155-office-365/"><u>解決方案：Office 365 發送電子郵件功能出現故障時的修復指南</u></a></li>
-<li><a href="https://discover-data.techidaily.com/guide-pour-resoudre-le-probleme-dauthenticite-sur-windows-xp-version-7601-7600/"><u>Guide Pour Résoudre Le Problème D'Authenticité Sur Windows XP Version 7601 / 7600</u></a></li>
-<li><a href="https://program-issues.techidaily.com/master-the-art-of-overcoming-fifa-19-crashing-problems-on-your-pc-machine/"><u>Master the Art of Overcoming FIFA 19 Crashing Problems on Your PC Machine</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/master-the-art-of-stable-screens/"><u>Master the Art of Stable Screens</u></a></li>
-<li><a href="https://discover-data.techidaily.com/mejores-alternativas-al-programa-carbon-copy-cloner-para-sistemas-operativos-windows-versiones-11-10-8-y-7/"><u>Mejores Alternativas Al Programa Carbon Copy Cloner Para Sistemas Operativos Windows: Versiones 11, 10, 8 Y 7</u></a></li>
-<li><a href="https://discover-data.techidaily.com/speedy-transfer-copying-data-from-one-external-hdd-to-another/"><u>Speedy Transfer: Copying Data From One External HDD to Another</u></a></li>
-<li><a href="https://discover-data.techidaily.com/utiliser-uefi-ghost-pour-transferer-votre-systeme-dexploitation-deux-methodes-faciles-et-efficaces/"><u>Utiliser Uefi Ghost Pour Transférer Votre Système D'Exploitation : Deux Méthodes Faciles Et Efficaces</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-full-featured-icloud-drive-in-sierra-comprehensive-exploration/"><u>[New] Full-Featured iCloud Drive in Sierra – Comprehensive Exploration</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlock-the-secret-to-harmonious-insta-story-posts/"><u>[New] Unlock the Secret to Harmonious Insta Story Posts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-quick-start-how-to-preserve-your-favorite-internet-streams/"><u>[Updated] 2024 Approved Quick Start How To Preserve Your Favorite Internet Streams</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-virtual-playstation-experience-at-your-fingertips-top-5/"><u>[Updated] In 2024, Virtual PlayStation Experience at Your Fingertips (Top 5)</u></a></li>
+<li><a href="https://discover-data.techidaily.com/elevate-your-home-screen-with-beyond-the-boundary-background-images-unique-captivating-designs-by-yl-software-solutions/"><u>Elevate Your Home Screen with 'Beyond The Boundary' Background Images – Unique, Captivating Designs by YL Software Solutions</u></a></li>
+<li><a href="https://discover-data.techidaily.com/get-your-scanner-working-again-step-by-step-solutions-from-yl-software-experts/"><u>Get Your Scanner Working Again: Step-by-Step Solutions From YL Software Experts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-innovate-and-captivate-top-10-video-response-examples/"><u>In 2024, Innovate and Captivate Top 10 Video Response Examples</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-a-camera-that-dives-into-vr-and-water-alike/"><u>Insta360 One X2 - A Camera That Dives Into VR & Water Alike</u></a></li>
+<li><a href="https://discover-data.techidaily.com/mastering-the-decks-a-young-artists-guide-to-learning-from-experienced-djs-expert-tips-video-from-pcdj/"><u>Mastering the Decks: A Young Artist's Guide to Learning From Experienced DJs | Expert Tips Video From PCDJ</u></a></li>
+<li><a href="https://discover-data.techidaily.com/yl-computings-free-utility-mastering-your-erc20-usdc-balance-comprehensive-guide/"><u>YL Computing's Free Utility: Mastering Your ERC20 USDC Balance - Comprehensive Guide</u></a></li>
 </ul></div>
 

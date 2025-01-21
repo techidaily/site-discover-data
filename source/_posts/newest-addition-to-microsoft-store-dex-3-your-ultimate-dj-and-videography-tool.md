@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2025-01-11T22:48:38.565Z
-updated: 2025-01-15T01:04:20.554Z
+date: 2025-01-15T05:07:17.555Z
+updated: 2025-01-20T23:19:36.267Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,19 +50,21 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-scripting-for-advanced-typography-in-after-effects/"><u>[New] Innovative Scripting for Advanced Typography in After Effects</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-visual-virtuosity-mastering-motivation-on-instagram/"><u>[Updated] 2024 Approved Visual Virtuosity Mastering Motivation on Instagram</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-joyful-jokes-on-pixels-35-best-mobile-apps/"><u>[Updated] Joyful Jokes on Pixels 35 Best Mobile Apps</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-linguistic-leaders-list-of-top-33-apps-that-turn-videos-into-text/"><u>2024 Approved The Linguistic Leaders' List of Top 33 Apps That Turn Videos Into Text</u></a></li>
-<li><a href="https://discover-data.techidaily.com/decoding-digital-currency-a-comprehensive-explanation-from-yl-software/"><u>Decoding Digital Currency: A Comprehensive Explanation From YL Software</u></a></li>
-<li><a href="https://discover-data.techidaily.com/how-to-fix-system-lag-post-graphics-card-update-expert-tips-from-yl-software-specialists/"><u>How to Fix System Lag Post-Graphics Card Update: Expert Tips From YL Software Specialists</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-motorola-moto-g84-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Motorola Moto G84 5G Device</u></a></li>
-<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-motorola-moto-g04-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Motorola Moto G04 – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/optimal-srt-tweaks-elevating-your-computing/"><u>Optimal SRT Tweaks Elevating Your Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-fixing-your-computer-by-replacing-faulty-ram-tips-from-yl-computing/"><u>Step-by-Step Guide: Fixing Your Computer by Replacing Faulty RAM - Tips From YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-guide-updating-your-laptops-storage-with-a-new-hard-drive-tech-tips-from-yl-computing/"><u>Step-by-Step Guide: Updating Your Laptop's Storage with a New Hard Drive - Tech Tips From YL Computing</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/top-gear-tech-advice-the-toms-hardware-way/"><u>Top Gear Tech Advice - The Tom's Hardware Way</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlocking-the-potential-and-pitfalls-of-digital-assets-with-yls-insight-into-crypto-investment-strategies/"><u>Unlocking the Potential and Pitfalls of Digital Assets with YL's Insight Into Crypto-Investment Strategies</u></a></li>
-<li><a href="https://discover-data.techidaily.com/why-does-my-computer-fan-shut-off-unexpectedly-expert-diagnosis-and-solutions-from-yl-computing/"><u>Why Does My Computer Fan Shut Off Unexpectedly? Expert Diagnosis & Solutions From YL Computing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unlock-joy-amidst-confinement-prime-20-jailbreak-funny-on-fb/"><u>[New] In 2024, Unlock Joy Amidst Confinement Prime 20 Jailbreak Funny on Fb</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210417221-9781638744283-a-day-with-dori/"><u>A Day with Dori | Free Book</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-lava-yuva-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-access-flipbuilders-image-cropping-feature/"><u>How to Access FlipBuilder's Image Cropping Feature</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-add-your-business-emblem-as-a-watermark-on-flipbook-pages-using-flipbuilder/"><u>How To Add Your Business Emblem As A Watermark On FlipBook Pages Using FlipBuilder</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-publish-a-fully-functional-ebook-in-apples-ibooks-author-format-with-flipstudio-pro/"><u>How to Publish a Fully Functional eBook in Apple's iBooks Author Format with FlipStudio Pro</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-set-up-a-secure-and-user-friendly-pdf-downloading-feature-on-your-site-using-flipbuilder/"><u>How to Set Up a Secure and User-Friendly PDF Downloading Feature on Your Site Using FlipBuilder</u></a></li>
+<li><a href="https://win-hot.techidaily.com/identifying-problematic-pc-drivers-a-step-by-step-guide-insights-from-yl-computing/"><u>Identifying Problematic PC Drivers: A Step-by-Step Guide - Insights From YL Computing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-tips-on-choosing-top-9-webcam-enhancement-tools/"><u>In 2024, Expert Tips on Choosing Top 9 Webcam Enhancement Tools</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transforming-facebook-videos-steps-to-high-definition/"><u>In 2024, Transforming Facebook Videos Steps to High Definition</u></a></li>
+<li><a href="https://discover-data.techidaily.com/incorporating-your-brands-logo-into-a-flipbook-design-with-flipbuilder/"><u>Incorporating Your Brand's Logo Into a Flipbook Design with FlipBuilder</u></a></li>
+<li><a href="https://discover-data.techidaily.com/incorporating-your-company-emblem-into-flipbook-content-created-via-flipbuilder/"><u>Incorporating Your Company Emblem Into FlipBook Content Created via FlipBuilder</u></a></li>
+<li><a href="https://discover-data.techidaily.com/instantly-turn-pdf-files-into-interactive-ebooks-at-no-cost/"><u>Instantly Turn PDF Files Into Interactive Ebooks at No Cost</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-value-4k-television-in-depth-review-of-the-hisense-50h8f-hdr-model/"><u>Top Value 4K Television: In-Depth Review of the Hisense 50H8F HDR Model</u></a></li>
+<li><a href="https://win-forum.techidaily.com/troubleshooting-steps-to-discard-a-windows-11-software-upgrade/"><u>Troubleshooting: Steps to Discard a Windows 11 Software Upgrade</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725287027020-vlc-media-player/"><u>VLC Media Player 使用ガイド - 包括的な解説とコツ</u></a></li>
 </ul></div>
 

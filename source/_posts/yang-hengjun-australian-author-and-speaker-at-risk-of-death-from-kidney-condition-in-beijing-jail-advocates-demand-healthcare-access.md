@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2025-01-09T19:53:00.152Z
-updated: 2025-01-14T23:53:16.874Z
+date: 2025-01-16T00:22:07.690Z
+updated: 2025-01-20T18:12:10.511Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,24 +56,14 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-data.techidaily.com/perdiste-su-carpeta-de-windows-10-o-11-conectese-para-recuperarla-rapidamente/"><u>¿Perdiste Su Carpeta De Windows 10 O 11? Conéctese Para Recuperarla Rápidamente</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-from-novice-to-expert-learning-the-ins-and-outs-of-instagram-hashtags-for-2024/"><u>[New] From Novice to Expert Learning the Ins and Outs of Instagram Hashtags for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-step-by-step-drawing-faces-on-snapchat/"><u>[New] In 2024, Step-by-Step Drawing Faces on Snapchat</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/onitor-top-youtube-videos-select-rank-trackers-guide-for-2024/"><u>[New] Monitor Top YouTube Videos - Select Rank Trackers Guide for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-secure-your-travel-documents-grab-10-free-passport-photos-onlinedesktop/"><u>[New] Secure Your Travel Documents Grab 10 FREE Passport Photos Online/Desktop</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-webinar-session-screening/"><u>[New] Webinar Session Screening</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-freezing-your-window-windows-screenshoting-guide-for-2024/"><u>[Updated] Freezing Your Window Windows Screenshoting Guide for 2024</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/1726028945690-1080p/"><u>「1080Pの解像度でニコニコ動画をダウンロードする究極ガイド」</u></a></li>
-<li><a href="https://discover-data.techidaily.com/biografia-completa-y-descriptiva-de-shirley-una-obra-maestra-por-aomei/"><u>Biografía Completa Y Descriptiva De Shirley - Una Obra Maestra Por AOMEI</u></a></li>
-<li><a href="https://discover-data.techidaily.com/come-risolvere-gli-errori-di-backup-non-riusciti-nel-sistema-operativo-windows-10/"><u>Come Risolvere Gli Errori Di Backup Non Riusciti Nel Sistema Operativo Windows 10</u></a></li>
-<li><a href="https://discover-data.techidaily.com/complete-handbook-on-resolving-sudden-pc-lockups/"><u>Complete Handbook on Resolving Sudden PC Lockups</u></a></li>
-<li><a href="https://discover-data.techidaily.com/dropbox3/"><u>Dropbox上の既定削除ファイルを完璧に回復する3つのテクニック</u></a></li>
-<li><a href="https://discover-data.techidaily.com/guida-passo-passo-per-eseguire-il-backup-completo-del-sistema-su-windows-10/"><u>Guida Passo-Passo per Eseguire Il Backup Completo Del Sistema Su Windows 10</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-set-up-iphone-14-plus-face-id-by-drfone-ios-unlock-ios-unlock/"><u>How to Set up iPhone 14 Plus Face ID?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Motorola Razr 40? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-oppo-k11x-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Oppo K11x for Streaming | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/schnelles-ubertragen-ihrer-hdds-auf-ssd-speicher-unter-verwendung-von-windows-anleitung-fur-versionen-111087/"><u>Schnelles Übertragen Ihrer HDDs Auf SSD-Speicher Unter Verwendung Von Windows - Anleitung Für Versionen 11/10/8/7</u></a></li>
-<li><a href="https://discover-data.techidaily.com/top-no-cost-tools-for-seamless-windows-11-migration-discover-aomei-backupper/"><u>Top No-Cost Tools for Seamless Windows 11 Migration: Discover AOMEI Backupper</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728483175065-windowsxcopy/"><u>Windows上で最強のファイルコピーツールを発見：XCopyの至高の代替品</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-complete-blueprint-for-success-adding-channels-as-features-on-youtube/"><u>[New] 2024 Approved The Complete Blueprint for Success Adding Channels as Features on Youtube</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-capturing-creativity-mobile-gadgets-ranking-leaders/"><u>[New] Capturing Creativity Mobile Gadgets Ranking Leaders</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ethereal-escapes-slick-action-recorders/"><u>[New] Ethereal Escapes Slick Action Recorders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-deciphering-the-world-of-youtube-media-conglomerates/"><u>[Updated] 2024 Approved Deciphering the World of YouTube Media Conglomerates</u></a></li>
+<li><a href="https://discover-data.techidaily.com/optimal-configuration-tips-for-enhanced-pc-efficiency-insights-from-yl-computing/"><u>Optimal Configuration Tips for Enhanced PC Efficiency - Insights From YL Computing</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/redragon-headset-mic-issues-discover-steps-to-restore-audio-input-on-windows-or-mac-computers/"><u>Redragon Headset Mic Issues? Discover Steps to Restore Audio Input on Windows or Mac Computers</u></a></li>
+<li><a href="https://discover-data.techidaily.com/top-2021-moments-with-pcdj-a-yearly-recap-for-fans/"><u>Top 2021 Moments with PCDJ – A Yearly Recap for Fans</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-potential-hazards-of-crypto-investments-insights-by-yl-computing/"><u>Understanding Potential Hazards of Crypto Investments - Insights by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unveiling-history-how-did-influential-figures-establish-the-renowned-chinese-ming-dynasty-learn-with-yl-software-expertise/"><u>Unveiling History: How Did Influential Figures Establish the Renowned Chinese Ming Dynasty? Learn with YL Software Expertise</u></a></li>
 </ul></div>
 

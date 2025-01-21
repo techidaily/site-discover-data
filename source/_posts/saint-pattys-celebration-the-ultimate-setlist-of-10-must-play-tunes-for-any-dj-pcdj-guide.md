@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2025-01-14T02:27:47.183Z
-updated: 2025-01-15T00:03:53.902Z
+date: 2025-01-15T04:09:52.084Z
+updated: 2025-01-20T21:58:13.094Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,21 +85,16 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-snip-youtube-videos-effortlessly/"><u>[Updated] 2024 Approved How to Snip YouTube Videos Effortlessly</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-the-art-of-loop-creating-impactful-content-for-instagram/"><u>[Updated] Mastering the Art of Loop Creating Impactful Content for Instagram</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/2023s-leading-advanced-robotic-mopping-systems/"><u>2023'S Leading Advanced Robotic Mopping Systems</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-bg-removal-in-figma-designs/"><u>2024 Approved Mastering BG Removal in Figma Designs</u></a></li>
-<li><a href="https://discover-data.techidaily.com/can-you-fix-malfunctioned-computer-components-on-a-windows-system-expert-advice-from-yl-computing/"><u>Can You Fix Malfunctioned Computer Components on a Windows System? - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/creating-your-own-account-on-yl-software-platforms-easy-tutorial-steps/"><u>Creating Your Own Account on YL Software Platforms: Easy Tutorial Steps</u></a></li>
-<li><a href="https://discover-data.techidaily.com/diy-solutions-for-a-faulty-pc-usb-port-restoration-techniques-by-yl-software-specialists/"><u>DIY Solutions for a Faulty PC USB Port Restoration Techniques by YL Software Specialists</u></a></li>
-<li><a href="https://discover-data.techidaily.com/download-high-definition-it-chapter-two-wallpapers-and-backgrounds-premium-quality-graphics-by-yl-computing/"><u>Download High-Definition It Chapter Two Wallpapers & Backgrounds - Premium Quality Graphics by YL Computing</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/find-your-perfect-match-top-picks-for-microsoft-office-competitors/"><u>Find Your Perfect Match: Top Picks for Microsoft Office Competitors</u></a></li>
-<li><a href="https://discover-data.techidaily.com/identifying-the-root-causes-behind-your-hard-drive-issues-expert-insights-from-yl-computing/"><u>Identifying the Root Causes Behind Your Hard Drive Issues - Expert Insights From YL Computing</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Vivo V27 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/save-fb-pages-with-a-click-top-8-tools-available-online-and-free/"><u>Save FB Pages with a Click Top 8 Tools Available Online & FREE</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-steams-secure-contents-lock-error-effectively/"><u>Troubleshooting Steam's Secure Contents Lock Error Effectively</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unlocking-the-secret-restoring-your-iphone-independently-from-itunes/"><u>Unlocking the Secret: Restoring Your iPhone Independently From iTunes</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unveiling-initial-coin-offerings-a-guide-to-risks-and-rewards-by-yl-software-experts/"><u>Unveiling Initial Coin Offerings: A Guide to Risks and Rewards by YL Software Experts</u></a></li>
-<li><a href="https://discover-data.techidaily.com/yl-softwares-insights-easily-modify-monitor-resolution-for-optimal-viewing/"><u>YL Software's Insights: Easily Modify Monitor Resolution for Optimal Viewing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rofessional-audio-tactics-achieving-excellence-without-a-microphone-for-2024/"><u>[New] Professional Audio Tactics Achieving Excellence without a Microphone for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-efficiently-mirroring-files-2-strategies-for-duplicating-data-across-your-local-drives/"><u>1. Efficiently Mirroring Files: 2 Strategies for Duplicating Data Across Your Local Drives</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-systematic-search-for-concealed-youtube-repositories/"><u>2024 Approved The Systematic Search for Concealed YouTube Repositories</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-apple-iphone-13-without-a-passcode-drfone-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your Apple iPhone 13 Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/buy-the-latest-version-of-aomei-centralized-backup-tool-today/"><u>Buy the Latest Version of AOMEI Centralized Backup Tool Today!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-oneplus-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any OnePlus Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instavoice-top-100-captions-that-define-your-personal-narrative/"><u>InstaVoice Top 100 Captions That Define Your Personal Narrative</u></a></li>
+<li><a href="https://discover-data.techidaily.com/protecting-portable-storage-a-guide-to-password-activated-safeguards-for-usb-devices-in-windows-environments/"><u>Protecting Portable Storage: A Guide to Password-Activated Safeguards for USB Devices in Windows Environments</u></a></li>
+<li><a href="https://discover-data.techidaily.com/steps-to-move-images-from-imessages-to-your-iphones-photo-album/"><u>Steps to Move Images From iMessages to Your iPhone's Photo Album</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-step-by-step-process-to-factory-reset-your-dell-device/"><u>Ultimate Guide: Step-by-Step Process to Factory Reset Your Dell Device</u></a></li>
+<li><a href="https://discover-data.techidaily.com/wiederherstellung-daten-von-einer-nicht-initialisierten-datentrager-recovery-guide/"><u>Wiederherstellung Daten Von Einer Nicht Initialisierten Datenträger – Recovery-Guide</u></a></li>
 </ul></div>
 
