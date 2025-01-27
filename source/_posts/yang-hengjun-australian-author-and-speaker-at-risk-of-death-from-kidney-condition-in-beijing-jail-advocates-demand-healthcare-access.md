@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2025-01-16T00:22:07.690Z
-updated: 2025-01-20T18:12:10.511Z
+date: 2025-01-21T03:49:40.936Z
+updated: 2025-01-27T04:59:09.754Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,14 +56,20 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-complete-blueprint-for-success-adding-channels-as-features-on-youtube/"><u>[New] 2024 Approved The Complete Blueprint for Success Adding Channels as Features on Youtube</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-capturing-creativity-mobile-gadgets-ranking-leaders/"><u>[New] Capturing Creativity Mobile Gadgets Ranking Leaders</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-ethereal-escapes-slick-action-recorders/"><u>[New] Ethereal Escapes Slick Action Recorders</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-deciphering-the-world-of-youtube-media-conglomerates/"><u>[Updated] 2024 Approved Deciphering the World of YouTube Media Conglomerates</u></a></li>
-<li><a href="https://discover-data.techidaily.com/optimal-configuration-tips-for-enhanced-pc-efficiency-insights-from-yl-computing/"><u>Optimal Configuration Tips for Enhanced PC Efficiency - Insights From YL Computing</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/redragon-headset-mic-issues-discover-steps-to-restore-audio-input-on-windows-or-mac-computers/"><u>Redragon Headset Mic Issues? Discover Steps to Restore Audio Input on Windows or Mac Computers</u></a></li>
-<li><a href="https://discover-data.techidaily.com/top-2021-moments-with-pcdj-a-yearly-recap-for-fans/"><u>Top 2021 Moments with PCDJ – A Yearly Recap for Fans</u></a></li>
-<li><a href="https://discover-data.techidaily.com/understanding-potential-hazards-of-crypto-investments-insights-by-yl-computing/"><u>Understanding Potential Hazards of Crypto Investments - Insights by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unveiling-history-how-did-influential-figures-establish-the-renowned-chinese-ming-dynasty-learn-with-yl-software-expertise/"><u>Unveiling History: How Did Influential Figures Establish the Renowned Chinese Ming Dynasty? Learn with YL Software Expertise</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-demystifying-recmeisters-advanced-screen-capture-technology/"><u>[Updated] Demystifying Recmeister's Advanced Screen Capture Technology</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1-fixing-the-error-unable-to-combine-avhd-files-with-hyper-v/"><u>1. Fixing the Error: Unable to Combine AVHD Files with Hyper-V</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1728493813155-office-365/"><u>解決方案：Office 365 發送電子郵件功能出現故障時的修復指南</u></a></li>
+<li><a href="https://discover-data.techidaily.com/2/"><u>完成快速数据迁移：将老电脑信息传输到新电脑的便捷方法（2种）</u></a></li>
+<li><a href="https://win-data.techidaily.com/1728500199445-3-windows-server-2022/"><u>易於管理：3種方法實現 Windows Server 2022 自動備份功能</u></a></li>
+<li><a href="https://discover-data.techidaily.com/guide-pour-resoudre-le-probleme-dauthenticite-sur-windows-xp-version-7601-7600/"><u>Guide Pour Résoudre Le Problème D'Authenticité Sur Windows XP Version 7601 / 7600</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-fix-and-prevent-league-of-legends-server-connection-errors/"><u>How to Fix and Prevent League of Legends Server Connection Errors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-crafting-audio-magic-a-windows-10-sound-journey/"><u>In 2024, Crafting Audio Magic A Windows 10 Sound Journey</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Tecno Pova 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/seamless-method-to-migrate-windows-7-user-profiles-across-computers/"><u>Seamless Method to Migrate Windows 7 User Profiles Across Computers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/solving-chromebook-freezing-issues-top-8-effective-solutions/"><u>Solving Chromebook Freezing Issues: Top 8 Effective Solutions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/top-language-learner-mondlys-2022-champion/"><u>Top Language Learner: Mondly's 2022 Champion</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-unlocking-cinematic-potential-advanced-fcpx-techniques/"><u>Updated 2024 Approved Unlocking Cinematic Potential Advanced FCPX Techniques</u></a></li>
+<li><a href="https://discover-data.techidaily.com/utiliser-uefi-ghost-pour-transferer-votre-systeme-dexploitation-deux-methodes-faciles-et-efficaces/"><u>Utiliser Uefi Ghost Pour Transférer Votre Système D'Exploitation : Deux Méthodes Faciles Et Efficaces</u></a></li>
 </ul></div>
 

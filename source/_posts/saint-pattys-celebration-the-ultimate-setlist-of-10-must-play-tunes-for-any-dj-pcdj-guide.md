@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2025-01-15T04:09:52.084Z
-updated: 2025-01-20T21:58:13.094Z
+date: 2025-01-26T04:57:09.666Z
+updated: 2025-01-26T23:31:32.634Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,16 +85,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/rofessional-audio-tactics-achieving-excellence-without-a-microphone-for-2024/"><u>[New] Professional Audio Tactics Achieving Excellence without a Microphone for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1-efficiently-mirroring-files-2-strategies-for-duplicating-data-across-your-local-drives/"><u>1. Efficiently Mirroring Files: 2 Strategies for Duplicating Data Across Your Local Drives</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-the-systematic-search-for-concealed-youtube-repositories/"><u>2024 Approved The Systematic Search for Concealed YouTube Repositories</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-apple-iphone-13-without-a-passcode-drfone-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your Apple iPhone 13 Without a Passcode | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/buy-the-latest-version-of-aomei-centralized-backup-tool-today/"><u>Buy the Latest Version of AOMEI Centralized Backup Tool Today!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-oneplus-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any OnePlus Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/instavoice-top-100-captions-that-define-your-personal-narrative/"><u>InstaVoice Top 100 Captions That Define Your Personal Narrative</u></a></li>
-<li><a href="https://discover-data.techidaily.com/protecting-portable-storage-a-guide-to-password-activated-safeguards-for-usb-devices-in-windows-environments/"><u>Protecting Portable Storage: A Guide to Password-Activated Safeguards for USB Devices in Windows Environments</u></a></li>
-<li><a href="https://discover-data.techidaily.com/steps-to-move-images-from-imessages-to-your-iphones-photo-album/"><u>Steps to Move Images From iMessages to Your iPhone's Photo Album</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-step-by-step-process-to-factory-reset-your-dell-device/"><u>Ultimate Guide: Step-by-Step Process to Factory Reset Your Dell Device</u></a></li>
-<li><a href="https://discover-data.techidaily.com/wiederherstellung-daten-von-einer-nicht-initialisierten-datentrager-recovery-guide/"><u>Wiederherstellung Daten Von Einer Nicht Initialisierten Datenträger – Recovery-Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-effective-practices-for-device-video-capture/"><u>[New] 2024 Approved Effective Practices for Device Video Capture</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-playlist-on-a-page-embedding-yt-videos-online/"><u>2024 Approved Playlist on a Page Embedding YT Videos Online</u></a></li>
+<li><a href="https://discover-data.techidaily.com/1728506422832-windows-11/"><u>如何在 Windows 11 系统中通过命令行解决问题 - 专业方法分享</u></a></li>
+<li><a href="https://discover-data.techidaily.com/best-methods-for-transferring-local-files-to-a-synology-diskstation-via-windows/"><u>Best Methods for Transferring Local Files to a Synology DiskStation via Windows</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-the-advantages-and-disadvantages-of-data-disk-cloning/"><u>Exploring the Advantages & Disadvantages of Data Disk Cloning</u></a></li>
+<li><a href="https://discover-data.techidaily.com/five-proven-methods-to-resolve-windows-11-startup-issues/"><u>Five Proven Methods to Resolve Windows 11 Startup Issues</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c02-phone-without-password-by-drfone-android/"><u>How To Unlock Nokia C02 Phone Without Password?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-broadcast-without-breaks-2023-guides-to-overcoming-livestream-disruptions-on-fb/"><u>In 2024, Broadcast Without Breaks 2023 Guides to Overcoming Livestream Disruptions on FB</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-capture-studio-high-fidelity-screen-record/"><u>In 2024, Capture Studio High Fidelity Screen Record</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-google-pixel-8-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Google Pixel 8 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/recover-lost-footage-effective-methods-for-retrieving-deleted-videos-on-windows-10-systems/"><u>Recover Lost Footage: Effective Methods for Retrieving Deleted Videos on Windows 10 Systems</u></a></li>
+<li><a href="https://discover-data.techidaily.com/remember-when-weighing-objects-especially-liquids-the-scale-should-be-level-and-stable-for-an-accurate-reading/"><u>Remember, when Weighing Objects, Especially Liquids, the Scale Should Be Level and Stable for an Accurate Reading.</u></a></li>
+<li><a href="https://discover-data.techidaily.com/should-you-upgrade-comparing-features-of-windows-7-10-and-11-for-optimal-performance/"><u>Should You Upgrade? Comparing Features of Windows 7, 10 and 11 for Optimal Performance.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/smart-strategies-achieving-advertising-excellence-for-2024/"><u>Smart Strategies Achieving Advertising Excellence for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/speedy-android-video-slicing-using-movavi-clips-a-comprehensive-tutorial/"><u>Speedy Android Video Slicing Using Movavi Clips: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-strategic-use-of-instagram-story-sections-for-brands/"><u>The Strategic Use of Instagram Story Sections for Brands</u></a></li>
 </ul></div>
 
