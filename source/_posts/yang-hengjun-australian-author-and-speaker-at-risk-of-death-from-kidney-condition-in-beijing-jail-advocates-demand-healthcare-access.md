@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2025-01-21T03:49:40.936Z
-updated: 2025-01-27T04:59:09.754Z
+date: 2025-02-07T20:48:56.165Z
+updated: 2025-02-08T20:48:54.250Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,20 +56,16 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-demystifying-recmeisters-advanced-screen-capture-technology/"><u>[Updated] Demystifying Recmeister's Advanced Screen Capture Technology</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-hitpaw-screen-recorder-review-and-alternative-for-2024/"><u>[New] HitPaw Screen Recorder Review and Alternative for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-navigating-instagram-live-anonymously-a-step-by-step-approach/"><u>[New] In 2024, Navigating Instagram Live Anonymously A Step-by-Step Approach</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-smartest-3d-apps-available-on-android-for-2024/"><u>[New] Smartest 3D Apps Available on Android for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-unlocking-full-potential-of-mixer-streaming-on-macos/"><u>[Updated] 2024 Approved Unlocking Full Potential of Mixer Streaming on macOS</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-vids-for-cash-a-compreomed-analysis-of-monetization-plays/"><u>[Updated] 2024 Approved Vids for Cash A Compreomed Analysis of Monetization Plays</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-12-video-hourly-livestream-service/"><u>[Updated] Exclusive 12 Video Hourly Livestream Service</u></a></li>
 <li><a href="https://discover-data.techidaily.com/1-fixing-the-error-unable-to-combine-avhd-files-with-hyper-v/"><u>1. Fixing the Error: Unable to Combine AVHD Files with Hyper-V</u></a></li>
 <li><a href="https://discover-data.techidaily.com/1728493813155-office-365/"><u>解決方案：Office 365 發送電子郵件功能出現故障時的修復指南</u></a></li>
 <li><a href="https://discover-data.techidaily.com/2/"><u>完成快速数据迁移：将老电脑信息传输到新电脑的便捷方法（2种）</u></a></li>
-<li><a href="https://win-data.techidaily.com/1728500199445-3-windows-server-2022/"><u>易於管理：3種方法實現 Windows Server 2022 自動備份功能</u></a></li>
-<li><a href="https://discover-data.techidaily.com/guide-pour-resoudre-le-probleme-dauthenticite-sur-windows-xp-version-7601-7600/"><u>Guide Pour Résoudre Le Problème D'Authenticité Sur Windows XP Version 7601 / 7600</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-fix-and-prevent-league-of-legends-server-connection-errors/"><u>How to Fix and Prevent League of Legends Server Connection Errors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-crafting-audio-magic-a-windows-10-sound-journey/"><u>In 2024, Crafting Audio Magic A Windows 10 Sound Journey</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Tecno Pova 5 Pro | Dr.fone</u></a></li>
 <li><a href="https://discover-data.techidaily.com/seamless-method-to-migrate-windows-7-user-profiles-across-computers/"><u>Seamless Method to Migrate Windows 7 User Profiles Across Computers</u></a></li>
-<li><a href="https://techtrends.techidaily.com/solving-chromebook-freezing-issues-top-8-effective-solutions/"><u>Solving Chromebook Freezing Issues: Top 8 Effective Solutions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/top-language-learner-mondlys-2022-champion/"><u>Top Language Learner: Mondly's 2022 Champion</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-unlocking-cinematic-potential-advanced-fcpx-techniques/"><u>Updated 2024 Approved Unlocking Cinematic Potential Advanced FCPX Techniques</u></a></li>
 <li><a href="https://discover-data.techidaily.com/utiliser-uefi-ghost-pour-transferer-votre-systeme-dexploitation-deux-methodes-faciles-et-efficaces/"><u>Utiliser Uefi Ghost Pour Transférer Votre Système D'Exploitation : Deux Méthodes Faciles Et Efficaces</u></a></li>
 </ul></div>
 

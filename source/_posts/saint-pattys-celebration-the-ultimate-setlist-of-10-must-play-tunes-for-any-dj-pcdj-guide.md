@@ -1,7 +1,7 @@
 ---
 title: "Saint Patty’s Celebration: The Ultimate Setlist of 10 Must-Play Tunes for Any DJ - PCDJ Guide"
-date: 2025-01-26T04:57:09.666Z
-updated: 2025-01-26T23:31:32.634Z
+date: 2025-02-04T20:37:30.988Z
+updated: 2025-02-08T22:40:05.513Z
 tags:
   - product
 categories:
@@ -25,7 +25,7 @@ We hope this list of **10 Must-Play St Patrick’s Day songs for DJs** helps jum
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 10 Must-Play St Patrick’s Day Songs For DJs
@@ -63,7 +63,7 @@ Across the Broad Atlantic (Live On Paddy’s Day – New York & Dublin)
 _I know we missed some! What songs can you add to the **top 10 St Patrick’s Day Songs For DJs** list? Please leave your suggestions in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -85,21 +85,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2016/03/stpatricksdaysongsfordjs-c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-effective-practices-for-device-video-capture/"><u>[New] 2024 Approved Effective Practices for Device Video Capture</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-playlist-on-a-page-embedding-yt-videos-online/"><u>2024 Approved Playlist on a Page Embedding YT Videos Online</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-maximizing-your-iphones-burst-photography/"><u>[New] 2024 Approved Maximizing Your iPhone's Burst Photography</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-frame-it-right-vertical-video-mastery-with-final-cut-pro-x-for-2024/"><u>[New] Frame It Right Vertical Video Mastery with Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-best-zero-cost-chromebook-recorders-for-2024/"><u>[Updated] Best Zero Cost Chromebook Recorders for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-livechat-recorder-pro-hd/"><u>2024 Approved LiveChat Recorder Pro HD</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Vivo Y27s | Dr.fone</u></a></li>
 <li><a href="https://discover-data.techidaily.com/1728506422832-windows-11/"><u>如何在 Windows 11 系统中通过命令行解决问题 - 专业方法分享</u></a></li>
 <li><a href="https://discover-data.techidaily.com/best-methods-for-transferring-local-files-to-a-synology-diskstation-via-windows/"><u>Best Methods for Transferring Local Files to a Synology DiskStation via Windows</u></a></li>
+<li><a href="https://discover-data.techidaily.com/come-salvaguardare-i-dati-con-un-solido-copia-di-segnaposto-per-il-tuo-disco-rigido-tecniche-e-consigli/"><u>Come Salvaguardare I Dati Con Un Solido Copia Di Segnaposto per Il Tuo Disco Rigido: Tecniche E Consigli</u></a></li>
+<li><a href="https://discover-data.techidaily.com/easy-steps-to-transfer-wireless-network-credentials-between-iphones/"><u>Easy Steps to Transfer Wireless Network Credentials Between iPhones</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-incorrect-text-display-windows-edition/"><u>Eliminating Incorrect Text Display Windows Edition</u></a></li>
 <li><a href="https://discover-data.techidaily.com/exploring-the-advantages-and-disadvantages-of-data-disk-cloning/"><u>Exploring the Advantages & Disadvantages of Data Disk Cloning</u></a></li>
 <li><a href="https://discover-data.techidaily.com/five-proven-methods-to-resolve-windows-11-startup-issues/"><u>Five Proven Methods to Resolve Windows 11 Startup Issues</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c02-phone-without-password-by-drfone-android/"><u>How To Unlock Nokia C02 Phone Without Password?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-broadcast-without-breaks-2023-guides-to-overcoming-livestream-disruptions-on-fb/"><u>In 2024, Broadcast Without Breaks 2023 Guides to Overcoming Livestream Disruptions on FB</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-capture-studio-high-fidelity-screen-record/"><u>In 2024, Capture Studio High Fidelity Screen Record</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-google-pixel-8-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Google Pixel 8 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/recover-lost-footage-effective-methods-for-retrieving-deleted-videos-on-windows-10-systems/"><u>Recover Lost Footage: Effective Methods for Retrieving Deleted Videos on Windows 10 Systems</u></a></li>
-<li><a href="https://discover-data.techidaily.com/remember-when-weighing-objects-especially-liquids-the-scale-should-be-level-and-stable-for-an-accurate-reading/"><u>Remember, when Weighing Objects, Especially Liquids, the Scale Should Be Level and Stable for an Accurate Reading.</u></a></li>
-<li><a href="https://discover-data.techidaily.com/should-you-upgrade-comparing-features-of-windows-7-10-and-11-for-optimal-performance/"><u>Should You Upgrade? Comparing Features of Windows 7, 10 and 11 for Optimal Performance.</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/smart-strategies-achieving-advertising-excellence-for-2024/"><u>Smart Strategies Achieving Advertising Excellence for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/speedy-android-video-slicing-using-movavi-clips-a-comprehensive-tutorial/"><u>Speedy Android Video Slicing Using Movavi Clips: A Comprehensive Tutorial</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/the-strategic-use-of-instagram-story-sections-for-brands/"><u>The Strategic Use of Instagram Story Sections for Brands</u></a></li>
+<li><a href="https://discover-data.techidaily.com/guida-passo-passo-al-creazione-di-unusb-repair-drive-per-windows-11/"><u>Guida Passo-Passo Al Creazione Di Un'USB Repair Drive per Windows 11</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-13-pro-max-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 13 Pro Max to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-collaborative-work-in-apple-pages-documents-through-icloud-with-expert-advice-from-zdnet/"><u>Mastering Collaborative Work in Apple Pages Documents Through iCloud with Expert Advice From ZDNet</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/optimal-budget-free-fb-picturemotion-designer/"><u>Optimal Budget-Free FB Picture/Motion Designer</u></a></li>
+<li><a href="https://discover-data.techidaily.com/resolved-issue-troubleshooting-windows-server-backups-inability-to-navigate-local-storage/"><u>Resolved Issue: Troubleshooting Windows Server Backup's Inability to Navigate Local Storage</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-list-of-top-tier-cameras-for-2024/"><u>The Ultimate List of Top-Tier Cameras for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/tout-savoir-sur-les-meilleurs-programmes-darchivage-portables-compatibles-avec-windows-11-cles-usb-incluses/"><u>Tout Savoir Sur Les Meilleurs Programmes D'archivage Portables Compatibles Avec Windows 11, Clés USB Incluses</u></a></li>
 </ul></div>
 

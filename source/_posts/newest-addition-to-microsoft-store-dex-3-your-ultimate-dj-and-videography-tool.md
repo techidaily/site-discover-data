@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2025-01-24T04:20:20.252Z
-updated: 2025-01-26T20:34:30.031Z
+date: 2025-02-01T16:42:51.885Z
+updated: 2025-02-09T01:02:37.620Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,20 +50,17 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-navigate-the-social-media-lands-cookie-with-youtubes-automatic-play-feature/"><u>[New] 2024 Approved Navigate the Social Media Lands Cookie with YouTube's Automatic Play Feature</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-navigating-the-truth-in-your-photos-an-instagram-selfie-audit/"><u>[Updated] In 2024, Navigating the Truth in Your Photos An Instagram Selfie Audit</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-syncing-sound-with-visuals-on-facebook-essential-guide/"><u>[Updated] Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
-<li><a href="https://discover-data.techidaily.com/discover-how-to-inspect-file-details-on-windows-systems-tips-from-yl-software-experts/"><u>Discover How to Inspect File Details on Windows Systems - Tips From YL Software Experts</u></a></li>
-<li><a href="https://discover-data.techidaily.com/enhancing-your-pcs-efficiency-expert-tips-for-decluttering-and-boosting-speed-yl-tech-insights/"><u>Enhancing Your PC's Efficiency: Expert Tips for Decluttering and Boosting Speed - YL Tech Insights</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-earn-big-start-small-top-13-profit-strategies-in-reddit-land-for-2024/"><u>[New] Earn Big, Start Small Top 13 Profit Strategies in Reddit Land for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-extend-your-snapstreak-success-with-these-ideas/"><u>[Updated] Extend Your Snapstreak Success with These Ideas</u></a></li>
 <li><a href="https://discover-data.techidaily.com/guide-activating-pdf-scanning-feature-in-your-windows-based-printer-techsolutions-by-yl/"><u>Guide: Activating PDF Scanning Feature in Your Windows-Based Printer - TechSolutions by YL</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Motorola Moto G14 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Tecno Spark 10 5G | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722995933248-say-goodbye-to-star-citizen-errors-enjoy-smooth-gaming-on-windows-today/"><u>Say Goodbye to Star Citizen Errors – Enjoy Smooth Gaming on Windows Today</u></a></li>
-<li><a href="https://app-tips.techidaily.com/stay-secure-and-connected-top-11-mobile-apps-for-hands-free-text-reading/"><u>Stay Secure and Connected: Top 11 Mobile Apps for Hands-Free Text Reading</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-restart-and-repair-sound-services-on-windows-7/"><u>How to Restart and Repair Sound Services on Windows #7</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-poco-x5-pro-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Poco X5 Pro</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/leverage-the-efficiency-of-cookiebot-for-superior-website-performance/"><u>Leverage the Efficiency of Cookiebot for Superior Website Performance</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mac-osx-compatible-dvd-converter-software-convert-digitize-and-stream-any-disc-content-to-iphoneipad-with-winx-dvd-ripper-pro/"><u>Mac OSX Compatible DVD Converter Software: Convert, Digitize & Stream Any Disc Content to iPhone/iPad with WinX DVD Ripper Pro</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-for-fixing-token-misrepresentation-issues/"><u>Strategies for Fixing “Token Misrepresentation” Issues</u></a></li>
 <li><a href="https://discover-data.techidaily.com/stunning-bmw-x6-in-scarlet-red-hd-wallpaper-designs-full-size-imagery-for-your-device-curated-by-yl-computing/"><u>Stunning BMW X6 in Scarlet Red HD Wallpaper Designs, Full-Size Imagery for Your Device - Curated by YL Computing</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-creative-catalyst-or-counterfeit-assessing-chatgpt/"><u>The Creative Catalyst or Counterfeit: Assessing ChatGPT</u></a></li>
 <li><a href="https://discover-data.techidaily.com/understanding-the-mystery-of-windows-black-screen-an-expert-guide-yl-computing/"><u>Understanding the Mystery of Windows' Black Screen: An Expert Guide - YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlocking-the-potential-of-blockchain-tech-with-tips-from-yls-expertise-in-computing-and-software/"><u>Unlocking the Potential of Blockchain Tech with Tips From YL's Expertise in Computing and Software</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unveiling-the-reasons-behind-the-blue-screen-of-death-a-comprehensive-guide-by-yl-computing/"><u>Unveiling the Reasons Behind the 'Blue Screen of Death': A Comprehensive Guide by YL Computing</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/unleash-your-creativity-how-to-make-professional-looking-movies-on-mac-for-2024/"><u>Unleash Your Creativity How to Make Professional-Looking Movies on Mac for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlock-fresh-beats-subscribe-to-our-karaoke-service-and-enjoy-the-latest-addition-of-over-37-tracks-as-of-aug-26th-nj/"><u>Unlock Fresh Beats! Subscribe to Our Karaoke Service and Enjoy the Latest Addition of Over 37 Tracks as of Aug 26Th, Nj!</u></a></li>
 </ul></div>
 
