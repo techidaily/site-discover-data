@@ -1,7 +1,7 @@
 ---
 title: "Download LYRX Karaoke & DJ Software for Mac: Enjoy New Features with Partytyme Live Streaming - Version 1.1"
-date: 2025-02-02T17:27:35.452Z
-updated: 2025-02-08T17:40:22.253Z
+date: 2025-02-15T19:36:34.100Z
+updated: 2025-02-18T19:26:17.767Z
 tags:
   - product
 categories:
@@ -35,7 +35,7 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Here’s What’s New, Changed And Updated In LYRX Version 1.1
@@ -53,7 +53,7 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 **_Existing LYRX owners should download and install the free trial to overwrite and update their existing version (no activation required)_**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### LYRX Version 1.1 Image Gallery
@@ -61,13 +61,13 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 [![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot1.png?fit=1030%2C644&ssl=1 "LYRX V1.1 Screenshot")[![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot4.png?fit=1030%2C644&ssl=1 "LYRX Text, Image And Video Overlays")[![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot3.png?fit=1030%2C644&ssl=1 "LYRX Video Link Feature")[![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot2.png?fit=1030%2C644&ssl=1 "Party Tyme Karaoke On-Screen Lyrics")
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Have questions about LYRX **karaoke software for MAC**, or the new Party Tyme **Karaoke Subscription**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -89,18 +89,20 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/lyrxpartytyme-coverimage.j
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-sync-your-world-with-these-free-beat-detectors/"><u>[New] 2024 Approved Sync Your World with These Free Beat Detectors</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-complete-checklist-for-youtube-production-gear/"><u>[New] The Complete Checklist for YouTube Production Gear</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/1722569405223-analyzing-the-strengths-and-weaknesses-of-pidgin-chat-application/"><u>Analyzing the Strengths & Weaknesses of Pidgin Chat Application</u></a></li>
-<li><a href="https://discover-data.techidaily.com/aomei-cyberback-free-complete-and-unified-serverworkstation-backup-system/"><u>AOMEI CyberBack Free: Complete & Unified Server/Workstation Backup System</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/dall-e-3s-latest-update-includes-edit-tools-yet-further-optimization-is-needed/"><u>DALL-E 3'S Latest Update Includes Edit Tools, Yet Further Optimization Is Needed</u></a></li>
-<li><a href="https://discover-data.techidaily.com/full-g-drive-with-empty-folders-proven-solutions-and-tips/"><u>Full G Drive with Empty Folders: Proven Solutions & Tips</u></a></li>
-<li><a href="https://discover-data.techidaily.com/gratis-anleitung-zum-deformatariseren-einer-harten-scheibe-und-ihrer-daten-auf-windows-1011/"><u>Gratis Anleitung Zum Deformatariseren Einer Harten Scheibe Und Ihrer Daten Auf Windows 10/11</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/iphone-se-vs-iphone-13-showdown-find-the-right-smartphone-for-your-needs/"><u>IPhone SE Vs. IPhone #13 Showdown: Find the Right Smartphone for Your Needs!</u></a></li>
-<li><a href="https://discover-data.techidaily.com/solution-for-apple-watch-cannot-answer-calls-problem/"><u>Solution for 'Apple Watch Cannot Answer Calls' Problem</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-art-of-multiplying-creativity-canva-gpt-at-your-service/"><u>The Art of Multiplying Creativity: Canva, GPT at Your Service</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-where-can-i-find-game-sound-effects/"><u>Updated Where Can I Find Game Sound Effects?</u></a></li>
-<li><a href="https://discover-data.techidaily.com/windows-11-dropbox-2/"><u>Windows 11 與 Dropbox 結合 : 2 項基本指南來管理同步文件夹</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-earning-on-youtube-a-step-by-step-guide-for-newbies-for-2024/"><u>[Updated] Earning on YouTube A Step-by-Step Guide for Newbies for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-enhancing-your-facebook-presence-with-effective-covers/"><u>[Updated] In 2024, Enhancing Your Facebook Presence with Effective Covers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-professionals-choice-best-drone-gimbals/"><u>2024 Approved Professional's Choice Best Drone Gimbals</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/best-disney-dvd-converter-simple-and-effective-ways-to-digitize-your-favorite-films/"><u>Best Disney DVD Converter - Simple & Effective Ways to Digitize Your Favorite Films</u></a></li>
+<li><a href="https://discover-data.techidaily.com/clonezilla/"><u>Clonezilla 操作中に '宛先ディスク容量不足' エラーを解決しよう</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-thoughts-on-youtubing-best-makers-tips-and-templates/"><u>Final Thoughts on YouTubing - Best Makers, Tips, and Templates</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-ideas-to-impressions-writing-with-ais-insight/"><u>From Ideas to Impressions: Writing with AI's Insight</u></a></li>
+<li><a href="https://discover-data.techidaily.com/guide-uploading-pictures-from-windows-11-to-external-memory-device-via-two-techniques/"><u>Guide: Uploading Pictures From Windows 11 to External Memory Device via Two Techniques</u></a></li>
+<li><a href="https://driver-download.techidaily.com/keep-your-hp-officejet-pro-8720-running-smoothly-with-the-newest-windows-driver-downloads/"><u>Keep Your HP OfficeJet Pro 8720 Running Smoothly with the Newest Windows Driver Downloads</u></a></li>
+<li><a href="https://discover-data.techidaily.com/resolving-the-issue-of-excessive-cpu-usage-by-windows-module-installer-top-11-fixes/"><u>Resolving the Issue of Excessive CPU Usage by Windows Module Installer: Top 11 Fixes</u></a></li>
+<li><a href="https://discover-data.techidaily.com/step-by-step-masterclass-successfully-reinstalling-windows-asterisk-7-on-new-hardware-drives/"><u>Step-by-Step Masterclass: Successfully Reinstalling Windows Asterisk 7 on New Hardware Drives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamlining-creation-youtube-video-editor-insights-for-2024/"><u>Streamlining Creation YouTube Video Editor Insights for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/tailored-workouts-maximizing-benefits-and-safety/"><u>Tailored Workouts: Maximizing Benefits & Safety</u></a></li>
+<li><a href="https://discover-data.techidaily.com/tutoriel-detaille-activation-des-snapshots-rapides-sur-windows-server-2019/"><u>Tutoriel Détaillé : Activation Des Snapshots Rapides Sur Windows Server 2019</u></a></li>
+<li><a href="https://discover-data.techidaily.com/alothaf-aladbya-almthyra-lliaagab-lnskh-alkrs-fy-shrkat-android-alhfath-aal-aliklaaa-bshola/"><u>الوظائف الأدبية المثيرة للإعجاب لنسخ القرص في شركات Android: الحفاظ على الإقلاع بسهولة</u></a></li>
 </ul></div>
 

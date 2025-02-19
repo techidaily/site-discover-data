@@ -1,7 +1,7 @@
 ---
 title: "Yang Hengjun: Australian Author and Speaker at Risk of Death From Kidney Condition in Beijing Jail, Advocates Demand Healthcare Access"
-date: 2025-02-07T20:48:56.165Z
-updated: 2025-02-08T20:48:54.250Z
+date: 2025-02-16T19:20:51.533Z
+updated: 2025-02-19T01:24:02.064Z
 tags:
   - product
 categories:
@@ -32,7 +32,7 @@ The Windows 10 display settings allow you to change the appearance of your deskt
 By making these adjustments to your Windows 10 display settings, you can customize your desktop to fit your personal preference. Additionally, these settings can help improve the clarity of your monitor for a better viewing experience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Post navigation
@@ -56,16 +56,22 @@ By making these adjustments to your Windows 10 display settings, you can customi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-hitpaw-screen-recorder-review-and-alternative-for-2024/"><u>[New] HitPaw Screen Recorder Review and Alternative for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-navigating-instagram-live-anonymously-a-step-by-step-approach/"><u>[New] In 2024, Navigating Instagram Live Anonymously A Step-by-Step Approach</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-smartest-3d-apps-available-on-android-for-2024/"><u>[New] Smartest 3D Apps Available on Android for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-unlocking-full-potential-of-mixer-streaming-on-macos/"><u>[Updated] 2024 Approved Unlocking Full Potential of Mixer Streaming on macOS</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-vids-for-cash-a-compreomed-analysis-of-monetization-plays/"><u>[Updated] 2024 Approved Vids for Cash A Compreomed Analysis of Monetization Plays</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-12-video-hourly-livestream-service/"><u>[Updated] Exclusive 12 Video Hourly Livestream Service</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1-fixing-the-error-unable-to-combine-avhd-files-with-hyper-v/"><u>1. Fixing the Error: Unable to Combine AVHD Files with Hyper-V</u></a></li>
-<li><a href="https://discover-data.techidaily.com/1728493813155-office-365/"><u>解決方案：Office 365 發送電子郵件功能出現故障時的修復指南</u></a></li>
-<li><a href="https://discover-data.techidaily.com/2/"><u>完成快速数据迁移：将老电脑信息传输到新电脑的便捷方法（2种）</u></a></li>
-<li><a href="https://discover-data.techidaily.com/seamless-method-to-migrate-windows-7-user-profiles-across-computers/"><u>Seamless Method to Migrate Windows 7 User Profiles Across Computers</u></a></li>
-<li><a href="https://discover-data.techidaily.com/utiliser-uefi-ghost-pour-transferer-votre-systeme-dexploitation-deux-methodes-faciles-et-efficaces/"><u>Utiliser Uefi Ghost Pour Transférer Votre Système D'Exploitation : Deux Méthodes Faciles Et Efficaces</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-best-in-class-no-charging-switch-replicas/"><u>[New] In 2024, Best-in-Class, No-Charging Switch Replicas</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-full-degree-potential-editing-strategies-with-adobe-premiere/"><u>[Updated] Unlocking Full Degree Potential Editing Strategies with Adobe Premiere</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-14-pro-max-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 14 Pro Max Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/connect-with-fellow-djs-best-facebook-groups-and-online-hubs-for-mixmasters/"><u>Connect with Fellow DJs: Best Facebook Groups and Online Hubs for Mixmasters</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/dive-into-virtual-space-with-lgs-360-degree-headset-for-2024/"><u>Dive Into Virtual Space with LG's 360-Degree Headset for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/dynamic-hd-fire-animation-and-live-background-for-your-phone-ultra-hd-clarity-with-yls-expert-software/"><u>Dynamic HD Fire Animation & Live Background for Your Phone - Ultra-HD Clarity with YL's Expert Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-definition-deathstroke-desktop-walls-premium-hd-graphics-and-imagery-by-yl-computing/"><u>High-Definition Deathstroke Desktop Walls: Premium HD Graphics and Imagery by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-can-i-optimize-my-computers-performance-essential-tips-from-yl-computing/"><u>How Can I Optimize My Computer's Performance: Essential Tips From YL Computing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-xiaomi-civi-3-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Xiaomi Civi 3 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-premium-cutter-writers-the-top-8-linux-software/"><u>In 2024, Premium Cutter' Writers The Top 8 Linux Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/master-your-monitor-luminosity-adjust-display-settings-on-windows-t-insights-by-yl-software-solutions/"><u>Master Your Monitor Luminosity: Adjust Display Settings on Windows T – Insights by YL Software Solutions</u></a></li>
+<li><a href="https://os-tips.techidaily.com/1723620257493-missing-iphone-images-swift-recovery-strategies-inside/"><u>Missing iPhone Images? Swift Recovery Strategies Inside!</u></a></li>
+<li><a href="https://discover-data.techidaily.com/revamp-your-connection-learn-how-to-refresh-network-adapter-drivers-with-tips-from-yl-software/"><u>Revamp Your Connection: Learn How to Refresh Network Adapter Drivers with Tips From YL Software</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-ace-guide-to-smooth-laptop-video-editing-via-inshot/"><u>The Ace Guide to Smooth Laptop Video Editing via Inshot</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-tecno-camon-20-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Tecno Camon 20 without backup.</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-potential-hazards-of-crypto-investments-insights-by-yl-computing/"><u>Understanding Potential Hazards of Crypto Investments - Insights by YL Computing</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unveiling-history-how-did-influential-figures-establish-the-renowned-chinese-ming-dynasty-learn-with-yl-software-expertise/"><u>Unveiling History: How Did Influential Figures Establish the Renowned Chinese Ming Dynasty? Learn with YL Software Expertise</u></a></li>
 </ul></div>
 

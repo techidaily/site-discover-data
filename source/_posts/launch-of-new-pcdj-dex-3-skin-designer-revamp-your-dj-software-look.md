@@ -1,7 +1,7 @@
 ---
 title: Launch of New PCDJ Dex 3 Skin Designer - Revamp Your DJ Software Look!
-date: 2025-02-07T19:02:54.722Z
-updated: 2025-02-08T16:28:08.975Z
+date: 2025-02-12T16:45:11.493Z
+updated: 2025-02-19T04:38:39.650Z
 tags:
   - product
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### [PCDJ DEX 3 DJ Software is now available](https://tools.techidaily.com/pcdj/products/), and we’ve released a new ‘Skin Designer’ that allows you to create and map your own DEX 3 skin easily.
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/0a18a6b406ce9f21eda937adac64825b459ee3a87
 The new graphics engine included with PCDJ DEX 3 is still _“skin based”_ – that simply means you can select a different skin in options to change the entire look and feel of the DEX 3 GUI (_Graphical User Interface_). DEX 3 already comes equip with all new [4-Deck](https://tools.techidaily.com/pcdj/products/) and [2-Deck](https://tools.techidaily.com/pcdj/products/) default skins at all (_high_) resolutions, each with a revamped [video mixing tab](https://tools.techidaily.com/pcdj/products/) (now with _separate preview windows_), effects grid tab and[![screenshot-video](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video-495x400.png?resize=495%2C400&ssl=1)](https://i0.wp.com/www.pcdj.com/wp-content/uploads/2014/07/screenshot-video.png?ssl=1) sampler tab.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Our community is always looking for new user created and submitted skins we can include on PCDJ.com for download for DEX 3 (complete with credit to the author and quite possibly some other incentives if we choose to include the skin with the DEX 3 installer) Different DJs have different needs and requirements while mixing, so much of the time user submitted skins fill a niche that other DJs with similar needs gravitate to.
@@ -76,13 +76,13 @@ Again, if you plan to take a shot at creating a touch screen skin, which should 
 **DOWNLOAD LINK FOR THE EXISTING DEX 3 SKINS INCLUDED WITH THE SOFTWARE (_USE EXISTING SKINS TO LEARN THE SKIN DESIGNER OR AS TEMPLATES FOR YOUR SKIN_):**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **[DOWNLOAD ALL EXISTING DEX 3 SKINS HERE](https://tools.techidaily.com/pcdj/products/)**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -104,18 +104,16 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2014/07/dex3skindesignercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-data.techidaily.com/perdiste-su-carpeta-de-windows-10-o-11-conectese-para-recuperarla-rapidamente/"><u>¿Perdiste Su Carpeta De Windows 10 O 11? Conéctese Para Recuperarla Rápidamente</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-strategies-for-maximizing-youtube-view-counts-through-regular-uploads/"><u>[Updated] In 2024, Strategies for Maximizing YouTube View Counts Through Regular Uploads</u></a></li>
-<li><a href="https://discover-data.techidaily.com/biografia-completa-y-descriptiva-de-shirley-una-obra-maestra-por-aomei/"><u>Biografía Completa Y Descriptiva De Shirley - Una Obra Maestra Por AOMEI</u></a></li>
-<li><a href="https://discover-data.techidaily.com/complete-handbook-on-resolving-sudden-pc-lockups/"><u>Complete Handbook on Resolving Sudden PC Lockups</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-champion-of-value-a-comprehensive-guide-to-fellowes-microban-wireless-keyboard/"><u>Discover the Champion of Value: A Comprehensive Guide to Fellowes Microban Wireless Keyboard</u></a></li>
-<li><a href="https://discover-data.techidaily.com/dropbox3/"><u>Dropbox上の既定削除ファイルを完璧に回復する3つのテクニック</u></a></li>
-<li><a href="https://article-files.techidaily.com/google-ar-stickers-an-introduction-and-comparisons-for-2024/"><u>Google AR Stickers An Introduction & Comparisons for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/guida-passo-passo-per-eseguire-il-backup-completo-del-sistema-su-windows-10/"><u>Guida Passo-Passo per Eseguire Il Backup Completo Del Sistema Su Windows 10</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark Go (2023) | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-motorola-razr-40-ultra-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Motorola Razr 40 Ultra Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-oneplus-11r-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best OnePlus 11R Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/schnelles-ubertragen-ihrer-hdds-auf-ssd-speicher-unter-verwendung-von-windows-anleitung-fur-versionen-111087/"><u>Schnelles Übertragen Ihrer HDDs Auf SSD-Speicher Unter Verwendung Von Windows - Anleitung Für Versionen 11/10/8/7</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-samsung-galaxy-z-fold-5-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Samsung Galaxy Z Fold 5 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-transformative-beauty-tutorials-for-everyone/"><u>[New] In 2024, Transformative Beauty Tutorials for Everyone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-this-years-offbeat-movie-masterpieces/"><u>[Updated] This Year’s Offbeat Movie Masterpieces</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-tecno-pop-7-pro-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/correct-image-rotation-windows-7-guide/"><u>Correct Image Rotation: Windows 7 Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exquisite-photo-amplification-web-and-phone-edition-for-2024/"><u>Exquisite Photo Amplification Web & Phone Edition for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/from-fun-to-fame-comparing-the-popularity-of-tiktok-and-snaps-user-base/"><u>From Fun to Fame Comparing the Popularity of TikTok & Snap's User Base</u></a></li>
+<li><a href="https://discover-data.techidaily.com/high-definition-tiger-theme-wallpapers-and-hd-backgrounds-ultimate-collection-by-yl-computing/"><u>High-Definition Tiger Theme Wallpapers and HD Backgrounds: Ultimate Collection by YL Computing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-realme-narzo-60-pro-5g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Realme Narzo 60 Pro 5G Phone that is Locked?</u></a></li>
+<li><a href="https://discover-data.techidaily.com/maintain-optimal-performance-while-ensuring-system-safety-insights-by-yl-software/"><u>Maintain Optimal Performance While Ensuring System Safety - Insights by YL Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/simplifying-system-cleanup-how-to-identify-and-delete-unnecessary-entries-in-the-registry-with-yl-softwares-tips/"><u>Simplifying System Cleanup: How to Identify and Delete Unnecessary Entries in the Registry with YL Software's Tips</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlocking-your-computers-registry-a-comprehensive-guide-from-yl-software-experts/"><u>Unlocking Your Computer's Registry: A Comprehensive Guide From YL Software Experts</u></a></li>
 </ul></div>
 

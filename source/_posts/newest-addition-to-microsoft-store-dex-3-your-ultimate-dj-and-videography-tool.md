@@ -1,7 +1,7 @@
 ---
 title: "Newest Addition to Microsoft Store: DEX 3 - Your Ultimate DJ and Videography Tool!"
-date: 2025-02-01T16:42:51.885Z
-updated: 2025-02-09T01:02:37.620Z
+date: 2025-02-16T21:31:56.792Z
+updated: 2025-02-19T02:56:15.495Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ Purchasers of [DEX 3 via the Microsoft Store](https://www.microsoft.com/en-us/p/
 More information to come!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,17 +50,22 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2018/12/dex3ms.jpg?fit=1920%2C1080
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-earn-big-start-small-top-13-profit-strategies-in-reddit-land-for-2024/"><u>[New] Earn Big, Start Small Top 13 Profit Strategies in Reddit Land for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-extend-your-snapstreak-success-with-these-ideas/"><u>[Updated] Extend Your Snapstreak Success with These Ideas</u></a></li>
-<li><a href="https://discover-data.techidaily.com/guide-activating-pdf-scanning-feature-in-your-windows-based-printer-techsolutions-by-yl/"><u>Guide: Activating PDF Scanning Feature in Your Windows-Based Printer - TechSolutions by YL</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-restart-and-repair-sound-services-on-windows-7/"><u>How to Restart and Repair Sound Services on Windows #7</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-poco-x5-pro-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Poco X5 Pro</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/leverage-the-efficiency-of-cookiebot-for-superior-website-performance/"><u>Leverage the Efficiency of Cookiebot for Superior Website Performance</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/mac-osx-compatible-dvd-converter-software-convert-digitize-and-stream-any-disc-content-to-iphoneipad-with-winx-dvd-ripper-pro/"><u>Mac OSX Compatible DVD Converter Software: Convert, Digitize & Stream Any Disc Content to iPhone/iPad with WinX DVD Ripper Pro</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/strategies-for-fixing-token-misrepresentation-issues/"><u>Strategies for Fixing “Token Misrepresentation” Issues</u></a></li>
-<li><a href="https://discover-data.techidaily.com/stunning-bmw-x6-in-scarlet-red-hd-wallpaper-designs-full-size-imagery-for-your-device-curated-by-yl-computing/"><u>Stunning BMW X6 in Scarlet Red HD Wallpaper Designs, Full-Size Imagery for Your Device - Curated by YL Computing</u></a></li>
-<li><a href="https://discover-data.techidaily.com/understanding-the-mystery-of-windows-black-screen-an-expert-guide-yl-computing/"><u>Understanding the Mystery of Windows' Black Screen: An Expert Guide - YL Computing</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/unleash-your-creativity-how-to-make-professional-looking-movies-on-mac-for-2024/"><u>Unleash Your Creativity How to Make Professional-Looking Movies on Mac for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/unlock-fresh-beats-subscribe-to-our-karaoke-service-and-enjoy-the-latest-addition-of-over-37-tracks-as-of-aug-26th-nj/"><u>Unlock Fresh Beats! Subscribe to Our Karaoke Service and Enjoy the Latest Addition of Over 37 Tracks as of Aug 26Th, Nj!</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-android-and-ios-leaders-essential-snapchat-video-editing-tools/"><u>[New] 2024 Approved Android & iOS Leaders Essential Snapchat Video Editing Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-redesign-instant-twitter-video-view/"><u>[New] 2024 Approved Redesign Instant Twitter Video View</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-guidelines-to-broaden-youtube-content-area/"><u>[New] Guidelines to Broaden YouTube Content Area</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unveiling-the-secrets-to-swiftly-altering-snapchat-soundscapes/"><u>[New] Unveiling the Secrets to Swiftly Altering Snapchat Soundscapes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-nokia-c32mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Nokia C32Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-publish-a-fully-functional-ebook-in-apples-ibooks-author-format-with-flipstudio-pro/"><u>How to Publish a Fully Functional eBook in Apple's iBooks Author Format with FlipStudio Pro</u></a></li>
+<li><a href="https://discover-data.techidaily.com/how-to-set-up-a-secure-and-user-friendly-pdf-downloading-feature-on-your-site-using-flipbuilder/"><u>How to Set Up a Secure and User-Friendly PDF Downloading Feature on Your Site Using FlipBuilder</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-samsung-galaxy-a15-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-depth-analysis-kinemaster-app-transform-your-gaming-world-for-2024/"><u>In-Depth Analysis KineMaster App - Transform Your Gaming World for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/incorporating-your-brands-logo-into-a-flipbook-design-with-flipbuilder/"><u>Incorporating Your Brand's Logo Into a Flipbook Design with FlipBuilder</u></a></li>
+<li><a href="https://discover-data.techidaily.com/incorporating-your-company-emblem-into-flipbook-content-created-via-flipbuilder/"><u>Incorporating Your Company Emblem Into FlipBook Content Created via FlipBuilder</u></a></li>
+<li><a href="https://discover-data.techidaily.com/instantly-turn-pdf-files-into-interactive-ebooks-at-no-cost/"><u>Instantly Turn PDF Files Into Interactive Ebooks at No Cost</u></a></li>
+<li><a href="https://discover-data.techidaily.com/intuitive-ipad-pdf-reader-and-converter-app-make-pdfs-come-alive-on-your-tablet-using-advanced-html5-technology/"><u>Intuitive iPad PDF Reader and Converter App - Make PDFs Come Alive on Your Tablet Using Advanced HTML5 Technology</u></a></li>
+<li><a href="https://discover-data.techidaily.com/is-it-possible-to-modify-the-default-preloader-swf-for-customized-ebook-design-on-flipbuilder/"><u>Is It Possible to Modify the Default Preloader SWF for Customized eBook Design on FlipBuilder</u></a></li>
+<li><a href="https://fox-access.techidaily.com/leading-iphone-apps-the-ultimate-guide-to-removing-photo-clutter-for-2024/"><u>Leading iPhone Apps The Ultimate Guide to Removing Photo Clutter for 2024</u></a></li>
+<li><a href="https://discover-data.techidaily.com/lost-your-registration-unlock-code-find-it-easily-using-flipbuilders-features/"><u>Lost Your Registration Unlock Code? Find It Easily Using FlipBuilder's Features</u></a></li>
+<li><a href="https://common-error.techidaily.com/mastering-the-art-of-gaining-access-tips-for-obtaining-trustedinstaller-permissions/"><u>Mastering the Art of Gaining Access: Tips for Obtaining TrustedInstaller Permissions</u></a></li>
 </ul></div>
 

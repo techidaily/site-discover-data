@@ -1,7 +1,7 @@
 ---
 title: "Upcoming Feature in DEX 3.11: Introducing Shader Technology for Enhanced Screen Graphics"
-date: 2025-02-04T22:52:06.092Z
-updated: 2025-02-08T20:38:52.317Z
+date: 2025-02-12T01:50:20.181Z
+updated: 2025-02-18T16:53:21.347Z
 tags:
   - product
 categories:
@@ -33,7 +33,7 @@ DEX 3 is the total multimedia mixing software solution for the modern and versat
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Try The DEX 3.11.0.0 Public Beta
@@ -43,7 +43,7 @@ If you haven’t already, please[join the Official PCDJ User Group on Facebook](
 _Have questions about using **Shaders** in DEX 3 **DJ Software** for on-screen **Visualizations**? Please leave them in the comments section below!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -65,14 +65,16 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2018/07/shadersupport.jpg?fit=706%
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-nokia-105-classic-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Nokia 105 Classic? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/best-free-4k-media-players-top-picks-for-windows-1111-and-macos-users/"><u>Best Free 4K Media Players: Top Picks for Windows 11/11 & macOS Users</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-realme-11x-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Realme 11X 5G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://discover-data.techidaily.com/problematische-transfertiefe-iphone-fotos-die-sich-nicht-auf-das-ipad-verschieben-lassen-erkennen-und-beheben-von-hindernissen/"><u>Problematische Transfertiefe: IPhone-Fotos, Die Sich Nicht Auf Das iPad Verschieben Lassen – Erkennen Und Beheben Von Hindernissen</u></a></li>
-<li><a href="https://discover-data.techidaily.com/recovering-files-from-the-trash-can-of-your-pc-without-costs-windows-11/"><u>Recovering Files From The Trash Can of Your PC Without Costs (Windows 11)</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-tutorial-setting-up-hyper-v-through-powershell-on-windows-10-and-servers/"><u>Step-by-Step Tutorial: Setting Up Hyper-V Through PowerShell on Windows 10 & Servers</u></a></li>
-<li><a href="https://discover-data.techidaily.com/transforma-su-viejo-pc-en-una-nueva-maquina-siguiendo-estos-metodos-sencillos/"><u>Transforma Su Viejo PC en Una Nueva Máquina Siguiendo Estos Métodos Sencillos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/zooms-video-excellence-the-best-6-cam-selections/"><u>Zoom's Video Excellence The Best 6 Cam Selections</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/vobaudacity/"><u>フリーオンライン・ビデオオブジェクトモジュール(VOB)からAudacity形式への移行 - ムヴァヴィ</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-premier-10-moba-titles-for-android-devotees/"><u>[New] 2024 Approved Premier 10 MOBA Titles for Android Devotees</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-examining-realities-intertwined-what-is-mixed-reality-for-2024/"><u>[New] Examining Realities Intertwined What Is Mixed Reality for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-gopro-match-up-ultimate-buyers-analysis/"><u>[Updated] Gopro Match-Up Ultimate Buyer's Analysis</u></a></li>
+<li><a href="https://discover-data.techidaily.com/boost-your-computer-speed-with-our-expert-maintenance-guide-from-yl-software-experts/"><u>Boost Your Computer Speed with Our Expert Maintenance Guide From YL Software Experts</u></a></li>
+<li><a href="https://discover-data.techidaily.com/exploring-the-latest-innovations-unveiling-whats-new-in-windows-11-insights-from-yl-computing/"><u>Exploring the Latest Innovations: Unveiling What's New in Windows 11 - Insights From YL Computing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-xiaomi-redmi-note-12-pro-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Xiaomi Redmi Note 12 Pro 5G? Try These Fixes</u></a></li>
+<li><a href="https://discover-data.techidaily.com/get-your-groove-on-with-new-and-exciting-tracks-from-party-time-karaoke-subscription-be-a-part-of-the-club-since-4418/"><u>Get Your Groove On with New & Exciting Tracks From Party Time Karaoke Subscription - Be a Part of the Club Since 4/4/18</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/gratuito-e-seguro-online-conversao-de-arquivos-mkv-com-o-software-movavi/"><u>Gratuito E Seguro: Online Conversão De Arquivos MKV Com O Software Movavi</u></a></li>
+<li><a href="https://discover-data.techidaily.com/guide-setting-up-your-systems-security-options-via-control-panel-tips-from-yl-computing/"><u>Guide: Setting Up Your System's Security Options via Control Panel - Tips From YL Computing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-oneplus-11-5g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from OnePlus 11 5G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-a-detailed-and-trustworthy-review-of-murfai-ai-text-to-speech-tool/"><u>New In 2024, A Detailed and Trustworthy Review of Murf.ai AI Text-to-Speech Tool</u></a></li>
 </ul></div>
 
