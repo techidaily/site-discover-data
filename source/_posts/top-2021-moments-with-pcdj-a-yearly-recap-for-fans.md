@@ -1,7 +1,7 @@
 ---
 title: Top 2021 Moments with PCDJ – A Yearly Recap for Fans
-date: 2025-02-18T01:48:56.981Z
-updated: 2025-02-18T19:41:52.111Z
+date: 2025-03-06T16:01:36.116Z
+updated: 2025-03-07T16:05:42.420Z
 tags:
   - product
 categories:
@@ -30,10 +30,6 @@ As we like to do at the expiry of each year, here’s a look at a few PCDJ miles
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2021 PCDJ Milestones
 
 * The [KSR (Karaoke Singer Requests)](https://tools.techidaily.com/pcdj/products/) system was released for DEX 3 and LYRX customers. The free KSR utility allowed DEX 3 and LYRX customers to easily share their songbook online with karaoke singers. Singers can use their own mobile device to access the catalog, search for songs, and make requests that pop up in the rotation list within DEX 3 and/or LYRX.
@@ -47,10 +43,6 @@ As we like to do at the expiry of each year, here’s a look at a few PCDJ miles
 With 2021 in the books we’re exited to build on our momentum in 2022\. New features, free updates, new services, and a more in the queue!
 
 _**Happy New Year — and here’s to a happy, healthy, and prosperous 2022\. We appreciate you!**_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _Related_
 
@@ -71,19 +63,17 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2022/01/year-in-review-copy.jpg?fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-lifes-journey-videos-creating-authentic-online-experiences/"><u>[New] Life's Journey Videos Creating Authentic Online Experiences</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-top-10-places-for-accessing-gratis-graphics/"><u>[New] Top 10 Places for Accessing Gratis Graphics</u></a></li>
-<li><a href="https://common-error.techidaily.com/tech-insight-fix-windows-dll-issue/"><u>[Tech Insight] Fix Windows DLL Issue</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-intense-moment-capture-iphone-burst-mode-for-2024/"><u>[Updated] Intense Moment Capture IPhone Burst Mode for 2024</u></a></li>
-<li><a href="https://discover-data.techidaily.com/advanced-material-ui-dashboard-pro-v2-with-laravel-livewire-integration-created-by-creative-tim-and-updivision/"><u>Advanced Material UI Dashboard Pro v2 with Laravel Livewire Integration | Created by Creative Tim and Updivision</u></a></li>
-<li><a href="https://discover-data.techidaily.com/build-an-mvc-framework-mashup-using-vue-laravel-and-json-api-for-beginners-by-updivision/"><u>Build an MVC Framework Mashup Using Vue, Laravel, and JSON API for Beginners by UPDIVISION</u></a></li>
-<li><a href="https://discover-data.techidaily.com/complete-monthly-scheduler-gratis-bootstrapped-calendars-from-design-icon-creative-tim/"><u>Complete Monthly Scheduler: Gratis Bootstrapped Calendars From Design Icon Creative Tim</u></a></li>
-<li><a href="https://discover-data.techidaily.com/create-a-dynamic-full-stack-application-with-vuejs-and-laravel-free-template-from-creative-tim/"><u>Create a Dynamic Full-Stack Application with Vue.js and Laravel - Free Template From Creative Tim</u></a></li>
-<li><a href="https://discover-data.techidaily.com/creative-tim-and-updivision-present-vue-now-interactive-laravel-based-full-stack-application-with-vuejs-and-json-api/"><u>Creative Tim & Updivision Present Vue Now - Interactive Laravel-Based Full Stack Application with Vue.js and JSON API</u></a></li>
-<li><a href="https://discover-data.techidaily.com/creative-tims-ultra-responsive-angular-bootstrap-dashboard-template-get-yours-for-free/"><u>Creative Tim's Ultra-Responsive Angular Bootstrap Dashboard Template – Get Yours for Free!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/exploring-computer-components-with-tom-insights-from-toms-hardware/"><u>Exploring Computer Components with Tom - Insights From Tom's Hardware</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-creative-photos-using-pexels-effectively/"><u>In 2024, Unlocking Creative Photos Using Pexels Effectively</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211347183-9781959930648-the-black-pearl/"><u>The Black Pearl | Free Book</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/form-with-the-10-most-exceptional-yoga-video-platforms-for-2024/"><u>Transform with the 10 Most Exceptional Yoga Video Platforms for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-unwanted-tiktok-reset-regain-access-and-videos/"><u>[New] 2024 Approved Unwanted TikTok Reset – Regain Access and Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-noise-control-for-filmmakers-basic-pro-methods-and-pricing/"><u>[New] Noise Control for Filmmakers - Basic, Pro Methods & Pricing</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-harness-your-pcs-power-for-high-dynamic-range-video-magic-for-2024/"><u>[Updated] Harness Your PC's Power for High Dynamic Range Video Magic for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-2023s-facebook-video-grabber-windowsmacosandroid/"><u>[Updated] In 2024, 2023'S Facebook Video Grabber Windows/macOS/Android</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-simplicity-in-recording-an-overwatch-perspective/"><u>[Updated] In 2024, Simplicity in Recording An Overwatch Perspective</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-take-control-a-compreeved-guide-to-iphoneipad-screen-recordings-on-youtube/"><u>2024 Approved Take Control A Compreeved Guide to iPhone/iPad Screen Recordings on YouTube</u></a></li>
+<li><a href="https://discover-data.techidaily.com/discordwindows-1187/"><u>恢复失去的Discord照片：针对Windows 11/8/7用户的两种办法</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-advice-for-unresponsive-computers-handling-windows-10-hangs/"><u>Expert Advice for Unresponsive Computers - Handling Windows 10 Hangs</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-world-of-metas-artificial-intelligence/"><u>Exploring the World of Meta's Artificial Intelligence</u></a></li>
+<li><a href="https://discover-data.techidaily.com/recover-lost-footage-effective-methods-for-retrieving-deleted-videos-on-windows-10-systems/"><u>Recover Lost Footage: Effective Methods for Retrieving Deleted Videos on Windows 10 Systems</u></a></li>
+<li><a href="https://discover-data.techidaily.com/remember-when-weighing-objects-especially-liquids-the-scale-should-be-level-and-stable-for-an-accurate-reading/"><u>Remember, when Weighing Objects, Especially Liquids, the Scale Should Be Level and Stable for an Accurate Reading.</u></a></li>
+<li><a href="https://discover-data.techidaily.com/should-you-upgrade-comparing-features-of-windows-7-10-and-11-for-optimal-performance/"><u>Should You Upgrade? Comparing Features of Windows 7, 10 and 11 for Optimal Performance.</u></a></li>
 </ul></div>
 

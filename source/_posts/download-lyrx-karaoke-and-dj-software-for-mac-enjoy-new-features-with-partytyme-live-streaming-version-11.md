@@ -1,7 +1,7 @@
 ---
 title: "Download LYRX Karaoke & DJ Software for Mac: Enjoy New Features with Partytyme Live Streaming - Version 1.1"
-date: 2025-02-15T19:36:34.100Z
-updated: 2025-02-18T19:26:17.767Z
+date: 2025-03-04T16:28:19.145Z
+updated: 2025-03-07T16:18:41.177Z
 tags:
   - product
 categories:
@@ -34,10 +34,6 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Here’s What’s New, Changed And Updated In LYRX Version 1.1
 
 * Added Party Tyme Karaoke subscription service (with offline mode)
@@ -52,23 +48,11 @@ One minor change that will surely be welcomed by [LYRX](http://lyrxkaraoke.com/)
 
 **_Existing LYRX owners should download and install the free trial to overwrite and update their existing version (no activation required)_**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### LYRX Version 1.1 Image Gallery
 
 [![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")![LYRX karaoke program from MAC with karaoke subscription](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot1.png?resize=495%2C400&ssl=1 "LYRX karaoke program from MAC with karaoke subscription")](https://i0.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot1.png?fit=1030%2C644&ssl=1 "LYRX V1.1 Screenshot")[![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")![LYRX Screen Shot Settings 2](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot4.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 2")](https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot4.png?fit=1030%2C644&ssl=1 "LYRX Text, Image And Video Overlays")[![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")![LYRX Screen Shot Settings 1](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot3.png?resize=495%2C400&ssl=1 "LYRX Screen Shot Settings 1")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot3.png?fit=1030%2C644&ssl=1 "LYRX Video Link Feature")[![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")![Party Tyme karaoke on-screen lyrics](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11_screenshot2.png?resize=495%2C400&ssl=1 "Party Tyme karaoke on-screen lyrics")](https://i1.wp.com/pcdj.com/wp-content/uploads/2017/08/LYRX11%5Fscreenshot2.png?fit=1030%2C644&ssl=1 "Party Tyme Karaoke On-Screen Lyrics")
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Have questions about LYRX **karaoke software for MAC**, or the new Party Tyme **Karaoke Subscription**? Please leave them in the comments section below!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### _Related_
 
@@ -89,20 +73,16 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2017/08/lyrxpartytyme-coverimage.j
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-earning-on-youtube-a-step-by-step-guide-for-newbies-for-2024/"><u>[Updated] Earning on YouTube A Step-by-Step Guide for Newbies for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-enhancing-your-facebook-presence-with-effective-covers/"><u>[Updated] In 2024, Enhancing Your Facebook Presence with Effective Covers</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-professionals-choice-best-drone-gimbals/"><u>2024 Approved Professional's Choice Best Drone Gimbals</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/best-disney-dvd-converter-simple-and-effective-ways-to-digitize-your-favorite-films/"><u>Best Disney DVD Converter - Simple & Effective Ways to Digitize Your Favorite Films</u></a></li>
-<li><a href="https://discover-data.techidaily.com/clonezilla/"><u>Clonezilla 操作中に '宛先ディスク容量不足' エラーを解決しよう</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-thoughts-on-youtubing-best-makers-tips-and-templates/"><u>Final Thoughts on YouTubing - Best Makers, Tips, and Templates</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/from-ideas-to-impressions-writing-with-ais-insight/"><u>From Ideas to Impressions: Writing with AI's Insight</u></a></li>
-<li><a href="https://discover-data.techidaily.com/guide-uploading-pictures-from-windows-11-to-external-memory-device-via-two-techniques/"><u>Guide: Uploading Pictures From Windows 11 to External Memory Device via Two Techniques</u></a></li>
-<li><a href="https://driver-download.techidaily.com/keep-your-hp-officejet-pro-8720-running-smoothly-with-the-newest-windows-driver-downloads/"><u>Keep Your HP OfficeJet Pro 8720 Running Smoothly with the Newest Windows Driver Downloads</u></a></li>
-<li><a href="https://discover-data.techidaily.com/resolving-the-issue-of-excessive-cpu-usage-by-windows-module-installer-top-11-fixes/"><u>Resolving the Issue of Excessive CPU Usage by Windows Module Installer: Top 11 Fixes</u></a></li>
-<li><a href="https://discover-data.techidaily.com/step-by-step-masterclass-successfully-reinstalling-windows-asterisk-7-on-new-hardware-drives/"><u>Step-by-Step Masterclass: Successfully Reinstalling Windows Asterisk 7 on New Hardware Drives</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/streamlining-creation-youtube-video-editor-insights-for-2024/"><u>Streamlining Creation YouTube Video Editor Insights for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/tailored-workouts-maximizing-benefits-and-safety/"><u>Tailored Workouts: Maximizing Benefits & Safety</u></a></li>
-<li><a href="https://discover-data.techidaily.com/tutoriel-detaille-activation-des-snapshots-rapides-sur-windows-server-2019/"><u>Tutoriel Détaillé : Activation Des Snapshots Rapides Sur Windows Server 2019</u></a></li>
-<li><a href="https://discover-data.techidaily.com/alothaf-aladbya-almthyra-lliaagab-lnskh-alkrs-fy-shrkat-android-alhfath-aal-aliklaaa-bshola/"><u>الوظائف الأدبية المثيرة للإعجاب لنسخ القرص في شركات Android: الحفاظ على الإقلاع بسهولة</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-proven-6-best-video-grabbers-for-your-mac/"><u>[Updated] In 2024, Proven 6 Best Video Grabbers for Your Mac</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://discover-data.techidaily.com/discover-how-to-inspect-file-details-on-windows-systems-tips-from-yl-software-experts/"><u>Discover How to Inspect File Details on Windows Systems - Tips From YL Software Experts</u></a></li>
+<li><a href="https://windows11.techidaily.com/efficient-windows-partition-integration-strategies/"><u>Efficient Windows Partition Integration Strategies</u></a></li>
+<li><a href="https://discover-data.techidaily.com/enhancing-your-pcs-efficiency-expert-tips-for-decluttering-and-boosting-speed-yl-tech-insights/"><u>Enhancing Your PC's Efficiency: Expert Tips for Decluttering and Boosting Speed - YL Tech Insights</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-advice-for-rectifying-issues-with-the-corsair-hs70-headset-mic/"><u>Expert Advice for Rectifying Issues with the Corsair HS70 Headset Mic</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/explore-the-depths-of-video-clarity-comprehensive-guide-to-vce-22/"><u>Explore the Depths of Video Clarity - Comprehensive Guide to VCE 2.2</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-apple-iphone-se-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From Apple iPhone SE</u></a></li>
+<li><a href="https://discover-data.techidaily.com/understanding-common-scanner-issues-and-fixes-with-guidance-from-yl-software-professionals/"><u>Understanding Common Scanner Issues and Fixes with Guidance From YL Software Professionals</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unlocking-the-potential-of-blockchain-tech-with-tips-from-yls-expertise-in-computing-and-software/"><u>Unlocking the Potential of Blockchain Tech with Tips From YL's Expertise in Computing and Software</u></a></li>
+<li><a href="https://discover-data.techidaily.com/unveiling-the-reasons-behind-the-blue-screen-of-death-a-comprehensive-guide-by-yl-computing/"><u>Unveiling the Reasons Behind the 'Blue Screen of Death': A Comprehensive Guide by YL Computing</u></a></li>
 </ul></div>
 
